@@ -61,4 +61,28 @@ _In claram Musis, militiaque Ephesum?_
 _An quia grata magis cælo tibi terra sit altrix,_  
 _Percupis hic thalamum esse Diana tuum?_
 
+Sed missis fabulis, simulacrum illud potius ab Amazonibus positum dixerim: cùm Ephesini templi constructio ijsdem à Dionysio Periegete tribuatur.
+
+[GREEK]
+
+_Maritimam Ephesam magnam urbem Dianæ,_  
+_Ubi Deæ ædem quondam Amazonides struxerunt_  
+_In trunco stipite ulmi._  
+
+Vero autem propius sit, Amazones simulacrum Dianæ vouisse, ut sacram ædem ei dedicarent. Fauet Callimachus hymn. in Dianam.
+
+[GREEK]
+
+_Tibi etiam Amazones belli affectatrices_  
+_Olim in littore Ephesi statuam posuerunt,_  
+_Fagino sub trunco._
+
+Illud mirum, eiusmodi simulacrum intactum illæsumque remansisse, nec fuisse mutatum ipso Deæ templo septies restituto, ut Plinius lib. 16. cap. 40. testatum reliquit. Porro eàdem plane symmetria ac forma, qua reliquas Deorum imagines, primitùs formatum fuisse hoc simulacrum crediderim. Sed deinde Ephesiorum hieromystæ gloriæ patrij numinis consulentes, ut varias Dianæ seu Lunæ vires, effectusq; denotarent, aurea, argentea, aliaque ornamenta, pro tempore tamen, et ad libitum exemptilia excogitarunt; et diversorum animantium toreumata, et emblemata in ijs exprimi curarunt. Coniecturam nostram firmat candidus ille ornatus marmoreus, quo totum Deæ corpus obducitur, quandoquidem in nonnullis alijs Dianæ Ephesiæ dissimilia à nostris symbola contineri observarim.
+
+# Corona Florea, et Turrita.
+
+## Dianæ vertex insignitur.
+
+Dianæ caput duplex cingit corona: quæ apposita fronti, florida est; altera muralis: utriusque minimè vulgaris ratio, sed ab Aegyptiorum sacris petita, quos neque radijs, neque lauro, neque olea, neque quercu patriorum Deorum capita cinxisse liquet. Isidis certè capiti Vulturis aut Accipitris pennas, modò exuvias aspidis, iam bouina coruna, et
+
 ...
