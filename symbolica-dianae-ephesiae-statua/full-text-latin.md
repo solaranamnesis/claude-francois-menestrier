@@ -112,12 +112,7 @@ Ceruos Diane obsequio ceu ministros, et (uti sic dicam) pedissequos semper fuiss
 
 _Montium custos, nemorumque virgo._
 
-Montium autem ac syluarum tutricem dictam puto, quòd in montibus cerui, et reliquæ feræ stabulentur; vel certè quia noctu incedit, ac suo splendore confragosa ac densa quæquæ loca perlustret. Quæ Phurnutus respiciens Dianam [GREEK] _Monticolam_ nominauit. Nemoribus præesse fingitur ex Fulgentij mente, quòd arboribus, et fructuum succo augumenta ingerat. Sin autem alias rationes desideres, ob quas præsertim ceruus in delitijs Dianæ fuerit, dabo. Rorem (aiunt) Jovis, et Lunæ filium esse, idque ex doctrina Poetæ vetustissimi inferiùs (cum de Apibus erit sermo) ostendam. Constat autem, ceruos æstiuis temporibus ipsoque statim Solis exortu rorem anhelanti ore excipere, atque eo se reficere; quod ipsum Physici obseruarunt, et in hieroglyphicis Pierius. Cæterùm cum cerui longissimæ sint vitæ, non malè Lunæ congruunt. Quam pro æternitatis sym-
-
-bolo in nummis Faustinæ Junioris expressam monuimus. Per quatuor de-
-mùm hosce ceruos juxta Deæ caput appositos, fortè quatuor Lunæ sese
-mutantis facies designari poterunt. Verùm illud coniectando, potiùs, quàm
-asseuerando dictum esto.
+Montium autem ac syluarum tutricem dictam puto, quòd in montibus cerui, et reliquæ feræ stabulentur; vel certè quia noctu incedit, ac suo splendore confragosa ac densa quæquæ loca perlustret. Quæ Phurnutus respiciens Dianam [GREEK] _Monticolam_ nominauit. Nemoribus præesse fingitur ex Fulgentij mente, quòd arboribus, et fructuum succo augumenta ingerat. Sin autem alias rationes desideres, ob quas præsertim ceruus in delitijs Dianæ fuerit, dabo. Rorem (aiunt) Jovis, et Lunæ filium esse, idque ex doctrina Poetæ vetustissimi inferiùs (cum de Apibus erit sermo) ostendam. Constat autem, ceruos æstiuis temporibus ipsoque statim Solis exortu rorem anhelanti ore excipere, atque eo se reficere; quod ipsum Physici obseruarunt, et in hieroglyphicis Pierius. Cæterùm cum cerui longissimæ sint vitæ, non malè Lunæ congruunt. Quam pro æternitatis symbolo in nummis Faustinæ Junioris expressam monuimus. Per quatuor demùm hosce ceruos juxta Deæ caput appositos, fortè quatuor Lunæ sese mutantis facies designari poterunt. Verùm illud coniectando, potiùs, quàm asseuerando dictum esto.
 
 # Leones Dianæ in Simulacro
 
