@@ -128,4 +128,17 @@ Inter alias imagines, quibus omne cælum distinxit antiquitas, non ignobile est 
 
 _Ad Lunæ motum variant animalia corpus._
 
+Longevum est etiam animal: et quemadmodum Luna reviuiscere videtur, ità Cancer crusta, seù tegumento se exuit, et statim revirescit; quòd est à Physicis animadversum. Cancri præterea ad nocturni luminis splendorem accurrunt, et noctu ut plurimum pasci solent. Quæ profecto satis euincunt, Cancris multiplicem inesse cum Lunari sidere consensionem; nec sine mente, consilioque illi fuisse adsignatos. Haud tamen omittendum, duxerim, quod Golzius nullo citato auctore refert, Cancrum apud mystas prudentiam denotasse, et hanc ob causam è collo Dianæ Ephesiæ suspensum. Idem apud Platonicos hominis ortum viamque designat: volunt enim animas per Cancri januam in humana corpora dimitti; et veluti Capricornum Deorum, sic Cancrum hominum portam vocant, quòd per eam egredientes animæ humanum in corpus transeant. Et hec ad nostrum emblema aptari possunt secundum Physiologos, qui Lunare lumen naturæ generationi, ac vite præesse volunt. Istud etiam hìc attexatur. Apud Brutios peculiari et insigni coronamento Diane caput Cancri testa ornatum, ut ex eorum nummis palàm est. Antonini Pij numisma ab Aegyptijs signatum in aversa parte expressum Cancrum habet chelas expandentem, et falcatam Lunæ sectiunculam apprehendentem. Eodem planè schemate, et pari symbolo Cancer sculptus est in veteri gemma, quæ in Pinacotheca Eminentissimi Cardinalis à Balneo adservatur. Verùm ista de Cancro sufficiant. Vocant nos ad se bine Victoriæ Dianam corollis et palmis insignientes: earum igitur explanationem aggrediamur.
+
+# Victoriæ Binæ Dianam
+
+## Ephesiam cur corollis, et palmis insigniunt.
+
+Binæ Victoriole Dee pectus exornantes nos sollicitant, ut è sanctioribus Ephesiorum promptuarijs causas repetamus, ob quas præsertim Dianæ Ephesiæ Victorie tribuerentur. Etenim non sine mysterio id ab Ephesijs prestitum. Hoc enim argumento cuncta submitti Lune potestati innuebant. Vel certè corollas memoriam esse beneficiorum à Natura siue Cerere generi humano collatorum volebant. Expresse verò sunt alis passis, cum corollis et palmis, qui solitus est Victoriarum habitus, ut liquet ex Claudiano de Laud. Stil.
+
+_Illa duci sacras victori panderet alas,_  
+_Et palma viridi gaudens._
+
+Victorie igitur imagines adeò gratæ, accepteque fuerunt Dianæ Ephesie,
+
 ...
