@@ -104,7 +104,7 @@ Magna autem illa, quam nos hìc cogitamus Ephesiorum Diana, Nature, seu universi
 
 Velo densas noctis opacæ tenebras, quibus aer circumfunditur, adumbrari peruium est. Hunc autem Dianæ velandi ritum non apud Ephesios modò, verùm etiam apud Aegienses receptum fuisse à Pausania in Achaicis edocemur. _Habent Aegienses vetustum Lucinæ fanum: Dea ligneum signum à vertice ad calcem velatum, præter eos tamen, summas manus, et pedes. Sunt verò quæ, non tanguntur partes è marmore pentelico. Alteram manum porrigit, altera facem præfert._ Atqui Lucina à Diana non est aliena: faces certe utrique fuere communes. Et Diana ipsa, seu mauis Luna, lumine suo ac splendore tanquam face ardenti, opaca et caliginosa conspicua lucidaque reddit. Huius quoque rei gratia quòd noctu, et in tenebris luceat, et incedat, Noctiluca, et Noctiuaga vocitata. Meritò igitur velum, tanquam obscuritatis à se depulsæ indicium à tergo demissum finxerunt. Ex quo Theologiæ fonte Apuleius in illa luculenta, et accurata Lunæ siue Isidis descriptione pallam ei nigerrimam assignare non dubitauit. Velum præterea modestiæ, ac pudoris virginalis signum esse in confesso est. Unde hoc etiam nomine Dianæ tribuendum.
 
-# Ceruorum Comitatu Diana.
+# Ceruorum Comitatu Diana
 
 ## Gaudet.
 
@@ -113,5 +113,16 @@ Ceruos Diane obsequio ceu ministros, et (uti sic dicam) pedissequos semper fuiss
 _Montium custos, nemorumque virgo._
 
 Montium autem ac syluarum tutricem dictam puto, quòd in montibus cerui, et reliquæ feræ stabulentur; vel certè quia noctu incedit, ac suo splendore confragosa ac densa quæquæ loca perlustret. Quæ Phurnutus respiciens Dianam [GREEK] _Monticolam_ nominauit. Nemoribus præesse fingitur ex Fulgentij mente, quòd arboribus, et fructuum succo augumenta ingerat. Sin autem alias rationes desideres, ob quas præsertim ceruus in delitijs Dianæ fuerit, dabo. Rorem (aiunt) Jovis, et Lunæ filium esse, idque ex doctrina Poetæ vetustissimi inferiùs (cum de Apibus erit sermo) ostendam. Constat autem, ceruos æstiuis temporibus ipsoque statim Solis exortu rorem anhelanti ore excipere, atque eo se reficere; quod ipsum Physici obseruarunt, et in hieroglyphicis Pierius. Cæterùm cum cerui longissimæ sint vitæ, non malè Lunæ congruunt. Quam pro æternitatis sym-
+
+bolo in nummis Faustinæ Junioris expressam monuimus. Per quatuor de-
+mùm hosce ceruos juxta Deæ caput appositos, fortè quatuor Lunæ sese
+mutantis facies designari poterunt. Verùm illud coniectando, potiùs, quàm
+asseuerando dictum esto.
+
+# Leones Dianæ in Simulacro
+
+## cælati consociatam Solis, et Lunæ potentiam indicant.
+
+Leo quamuìs Solis animal Solarisquè naturæ particeps ab omni fermè Mythologorum cœtu perhibeatur; Dianæ tamen, Magnæ Matri, Cybele, Cereri, ac Isidi adscriptum fuisse uetera monumenta nobis insinuant. Quarum facturum me operæ pretium puto (cum vetustissimum simulacrum discutiendum susceperim) si prisca numismata ad rem nostram stabiliendam facientia Scriptorum vice proferam. Igitur Magnæ Matris effigies in pulcherrimo æreo nummo Faustinæ Antonini Pij filiæ, cum hac epigraphe MATRI DEUM SALUTARI, Leonibus inclyta conspicitur. Cybelem Leoni insidentem Septimij Seueri numismata referunt apud Adol. Occonem. Eius similiter currum Leones trahunt in nummo Faustine Junioris apud Petrum Mareschal Patritium Bisuntinum. Hæc etiam in quarto denario Volteiæ gentis leonum famulitio gaudet. In nummis Faustinæ Junioris Isidis Sistratæ imago cum leone ad pedes exprimitur. Diana demùm in arca illa celebri, quam Cypselidæ in Olympia dedicarunt, alata insurgebat, et Leonem ad dextram, pantheram habebat ad sinistram, ut Pausanias in Eliac. memoriæ prodidit. At verò quid Leonibus cum hisce Deabus peculiare, et cur illis sacri fuerint, nobis inquirendum est. An ideo Magnæ Matri leones solutos et mansuetos adiunxerunt, ut designarent nullum esse terræ genus tam asperum atque ferum, quod non subigi coliquè possit? Sic lego Varroni placuisse. An verò etiam ut significarent maternam pietatem omnia superare. An quòd Cybeles cum Dea montana sit, vehi leonum jugo debuit. An verò currum Cybeles Leones trahere dicuntur, quòd ab ijs nutrita sit? An quia Cybele, que et terra est, vim gignendi à Sole recipit? Solis verò præcipuum symbolum Leo, qui et Cereri ideo forsan adscriptus fuit, quia hæc mensis Augusti tutelaris erat, ut in Kalendario antiquo habetur. Dianæ porrò destinatum crediderim ob duplicem leonis naturam: eius enim anteriores partes, quia robore ingenti præditæ sunt, celestia; posteriores quia debiliores, terrestia referunt. Quæ cause licèt ad confirmationem
 
 ...
