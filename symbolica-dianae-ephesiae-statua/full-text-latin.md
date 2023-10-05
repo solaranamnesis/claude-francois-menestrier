@@ -192,6 +192,22 @@ Aegyptiorum Theologia, Lunam matrem mundi, à Sole gravidatam fœcunda generatio
 
 _At gemina et mammosa, Ceres est ipsa ab Iaccho._
 
-Geminam dixit acsi opimam et amplam innuere voluisset. Ex adductis nemo non videt, Isidi apud Aegyptios, et Macrobium; Dianæ apud Ephesios, et Messenios; Telluri apud Athenienses; Cereri apud Lucretium et Arnobium, nutricis seù mammosæ elogium æquè fuisse attributum: nec ab harum consortio Rhea eliminanda erit, cùm et ipsa matris titulo gaudeat. Conspirare autem hæc omnia videntur, ut hasce omnes Deas sub unico Dianæ nostræ simulacro copulatas firma probatione retinere possimus. Atqui non indecenter Diana, seù mauis Ceres Polymamma à priscis illis mythologis efficta, quàm superiùs [GREEK] dictam [GREEK] ex vetustissimis scriptoribus protulimus: quòd utiquè mater altrixquè sit omnium, quæ in ea vitam degunt. Alij [GREEK] dicunt, quòd omnia pariat, et recipiat. Sed et à Virgilio alma dicitur, ab alendo nimirum ut Servius interpretatur: benignis enim Telluris Lunequè viribus alimenta
+Geminam dixit acsi opimam et amplam innuere voluisset. Ex adductis nemo non videt, Isidi apud Aegyptios, et Macrobium; Dianæ apud Ephesios, et Messenios; Telluri apud Athenienses; Cereri apud Lucretium et Arnobium, nutricis seù mammosæ elogium æquè fuisse attributum: nec ab harum consortio Rhea eliminanda erit, cùm et ipsa matris titulo gaudeat. Conspirare autem hæc omnia videntur, ut hasce omnes Deas sub unico Dianæ nostræ simulacro copulatas firma probatione retinere possimus. Atqui non indecenter Diana, seù mauis Ceres Polymamma à priscis illis mythologis efficta, quàm superiùs [GREEK] dictam [GREEK] ex vetustissimis scriptoribus protulimus: quòd utiquè mater altrixquè sit omnium, quæ in ea vitam degunt. Alij [GREEK] dicunt, quòd omnia pariat, et recipiat. Sed et à Virgilio alma dicitur, ab alendo nimirum ut Servius interpretatur: benignis enim Telluris Lunequè viribus alimenta præcipuè deberi ueteres agnoscebant. Huius autem singularia beneficia Columella lib. 3. cap. 22. decantat his verbis. _Quibus alma Tellus annua vite, væluti æterno quodam puerperio læta mortalibus distenta musto dimittit ubera._ Cæterum hæc nostra multimammia genuinus est prouidentissimæ Naturæz typus. Apud priscos enim papillæ rotundæ atque prominentes fæcunditatis erant indicia: et hoc præsertim hieroglyphico Aegyptij ad Isidis, seù Cereris fœcunditatem, ac rerum omnium affluentiam designandam usos fuisse Apuleius auctor est. Nam veluti lac profusum ex uberibus saginat fetus, ità etiàm è gremio telluris fruges productæ mitia alimenta mortalibus præbent. Proindè non inconsultè inter alia fercula, quæ in pompa Isiaca à sacris Aegyptiorum antistibus præferebantur, vasculum papillæ simile ab Apuleio recensetur. Luna quippe partubus præesse creditur, quia illius ope, propter vim propriam humoris, fetus adiuuatur, et in utero intumescit. Per innumeras demùm mammas Naturæ adscriptas infinitum non hominum solummodo, verùm etiàm animantium, nec non vegetabilium numerum, quæ insimul alit, adumbrare haud dubiè voluerunt. Cum videlicèt penè totum Deæ corpus varijs animalium figuris refertum, et diversis fructuum generibus insignitum repræsentetur. Sed et Plutarchum audiamus referentem, quòd Lunare lumen generandi, atquè humectandi vim habeat; ac tam animalium fetibus, quàm plantarum pullulationibus conducat. Unde Apuleio sæpiùs laudato Luna, siue Ceres omniparens, quasi omnia pariens et gignens dicitur. Nec verò ab hac semita discedit Mantuanus poëta, dum dixit.
+
+_Nec non et Tityon terræ omniparentis alumnum._  
+_Cernere erat._
+
+Enimuerò cùm omnia ab ea alantur, perinde atquè à nutrice et matre, signanter maternum nomen illi inditum est. Quò etiàm epitheto Luna ab Orpheo cohonestatur, apud quem modò [GREEK], modò [GREEK] indigetatur. Addi, si graue non est, insignem Lucretij lib. 2. ad hanc rem locum.
+
+_Deniquè celesti sumus omnes semine oriundi:_  
+_Omnibus ille idem pater est, unde alma liquentis_  
+_Humorum guttas mater cùm terra recepit,_  
+_Fœta parit nitidas fruges, arbustaquè læta,_  
+_Et genus bumanum: parit omnia secla ferarum_  
+_Pabula cum præbet, quibus omnes corpora pascunt_  
+_Et dulcem ducunt vitam, prolemquè propagant:_  
+_Quapropter meritò maternum nomen adepta est._
+
+Luculentèr hoc identidem præfatus poëta et Philosophus ostendit alibi, ad quem lectorem remitto. Firmicus Maternus Mathem lib. 3. omnem sub-
 
 ...
