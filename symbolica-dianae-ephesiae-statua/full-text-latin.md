@@ -217,6 +217,26 @@ Utrumque Deæ latus duæ Sphinges muniunt, quæ ab Ausoniana descriptione non di
 _Terruit Aoniam volucris, leo, virgo triformis_  
 _Sphinx, volucris pennis, pedibus fera, fronte puella._
 
-Inter vetustissimos verò scriptores non defuerunt, qui caudam draconis illi adiunxerint: sed in illa non morabor: consule si lubet Herodotum, Aelianum, Plutarchum, Solinum, Diodorum, Plinium, Clementem Alexandrinum, et Palæphatum, qui caninum etiam illi caput assignant. Potes prætereà genuinam eius effigiem ex infinitis propemodùm monumentis antiquis observare. Hoc dicam, Sphingem Aegyptium fuisse inventum, quam ex virgine, atquè leone compositam finxerunt: hac præsertim ratione ducti, quòd Quintili et Sextili mensibus, sub quorum tutela Leo et Virgo sunt, Nilus exuberet, ut Bellonius observauit. Apud Aegyptios item constans fama est, Sphinges præ foribus ædium sacrarum Isidis et Osiridis tanquam silentij, taciturnitatis, ac prudentiæ symbola fuisse collocatas, ut Synesius orat. de prouid. memorat: quibus signis templa Deorum adeuntes, ut tacitè vota facerent, monebantur, nec arcana numinum divulgarent, sed mysteria sub his latitare præsentirent. Hanc autem Aegyptiorum doctrinam ad Ephesios transijsse ex germana Isidis, et Cereris cognatione autumare licet. Nam sicut Sphinx Memphitica, sacra ceremoniasque seclusas esse, et silentio tegi oportere innuebat; sic non absimili ratione Cereris initia occultanda, obsignandaquè esse apud Ephesios figura
+Inter vetustissimos verò scriptores non defuerunt, qui caudam draconis illi adiunxerint: sed in illa non morabor: consule si lubet Herodotum, Aelianum, Plutarchum, Solinum, Diodorum, Plinium, Clementem Alexandrinum, et Palæphatum, qui caninum etiam illi caput assignant. Potes prætereà genuinam eius effigiem ex infinitis propemodùm monumentis antiquis observare. Hoc dicam, Sphingem Aegyptium fuisse inventum, quam ex virgine, atquè leone compositam finxerunt: hac præsertim ratione ducti, quòd Quintili et Sextili mensibus, sub quorum tutela Leo et Virgo sunt, Nilus exuberet, ut Bellonius observauit. Apud Aegyptios item constans fama est, Sphinges præ foribus ædium sacrarum Isidis et Osiridis tanquam silentij, taciturnitatis, ac prudentiæ symbola fuisse collocatas, ut Synesius orat. de prouid. memorat: quibus signis templa Deorum adeuntes, ut tacitè vota facerent, monebantur, nec arcana numinum divulgarent, sed mysteria sub his latitare præsentirent. Hanc autem Aegyptiorum doctrinam ad Ephesios transijsse ex germana Isidis, et Cereris cognatione autumare licet. Nam sicut Sphinx Memphitica, sacra ceremoniasque seclusas esse, et silentio tegi oportere innuebat; sic non absimili ratione Cereris initia occultanda, obsignandaquè esse apud Ephesios figura Sphingis Dianæ simulacro insculpta præmonebat. Quæ ut credibilia habeam, impellunt me tacita illa et operata Cereris apud omnes ferme gentes initia, et sacra: quæ nulla re magis quàm silentio constare Justinus memorat. Ad quæ alludens Apuleius scribit: _Cætera, quæ silentio tegit Eleusis Atticæ sacrarium._ Porrò mysteria Eleusina dicebantur, quòd apud Eleusinos primùm inventa fuissent, in quibus silentij fides adhibenda erat. [GREEK], etenim ut Suidas interpretatur, [GREEK] dicebantur, ab ore videlicet claudendo: quòd deceat eos, qui audiunt divinas ceremonias, os obturare, nec ulli mortalium enunciare, ne oculis profanorum obuiæ polluantur. Initiationes etiam hæc Cereris mysteria dicebantur, ut Arnobius observauit: quia semper profanos arcebant, ut arbitris carerent. Omni exceptione maius erit hoc Horatij lib. 3. Car. super hac re testimonium.
+
+_Vetabo qui Cereris sacrum_  
+_Vulgati arcanæ, sub ijsdem_  
+_Sit trabibus, fragilemquè mecum_  
+_Soluat faselum._
+
+Ad cuius etiam mentem Tibullus canit.
+
+_Non ego tentaui nulli temeranda Deorum_  
+_Audax laudandæ sacra docere Deæ._
+
+Verùm si in sacris Cereris hæc religiosi arcani observatio tenebatur, Cybeleia sacra non minori cultu, aut silentio peragebantur. Quò spectant illa vatis,
+
+_hinc fida silentia sacris._
+
+Cùm autèm nocturno tempore altum sit ubiquè silentium, hac de causa Cereri, ac Cybeli noctu sacra celebrabantur. Quanquàm iuxtà M. Varronis, et Divi Augustini sentenriam multa in Cerealibus mysterijs tradebantur ad fruges maximè pertinentia, quæ omnia peculiari taciturnitate obsignanda erant. Apuleius item Eleusina mysteria, lætificas messium cæremonias appellat. Sphinges porrò ex humano ferinoquè corpore constabant: facie plerumque muliebri, nonnumquam etiam viriti; quæ Androsphinges Herodoto dictæ. Quò symbolo non ineptè declaratur, Cereris beneficio ferinam illam et agrestem mortalium prisci æui barbariem in humaniorem, et urbaniorem vitam commutatam fuisse. Nam Ceres præterquàm quòd frumentum inuenit, eius etiam subigendi rationem edocuit; et leges dedit, quibus justitiam colere mortales didicerunt: his autem beneficijs nulla maiora reperiri possunt. Unde non sine causa ab Ouidio dictum est;
+
+_Prima dedit leges, Cereris sunt omnia munus._
+
+Sed et alia ratio de huiusce animalis symbolo hìc expresso subesse poterit,
 
 ...
