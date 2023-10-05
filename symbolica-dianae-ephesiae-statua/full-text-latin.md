@@ -208,6 +208,15 @@ _Pabula cum præbet, quibus omnes corpora pascunt_
 _Et dulcem ducunt vitam, prolemquè propagant:_  
 _Quapropter meritò maternum nomen adepta est._
 
-Luculentèr hoc identidem præfatus poëta et Philosophus ostendit alibi, ad quem lectorem remitto. Firmicus Maternus Mathem lib. 3. omnem sub-
+Luculentèr hoc identidem præfatus poëta et Philosophus ostendit alibi, ad quem lectorem remitto. Firmicus Maternus Mathem lib. 3. omnem subsantiam humani corporis ad potestatem lunaris luminis pertinere auctor est. Idemquè lib. 4. Lunam humanorum corporum matrem scientèr appellat. Luna etiam, eodem referente, terræ imperium ex vicinitate sortita, omnium animantium corpora et concepta procreat, et generata dissoluit. Diuus autem Augustinus de Ciuit. Dei lib. 7. Tellurem dici matrem asserit, quia plurima pariat; magnam, quia cibum cunctis subministret. Quæ omnia ambarum manuum porrectione iterum indicantur: liberalitas enim passis manibus olim figurabatur, ut scribit Diodorus Siculus lib. 4. Et has quidem ambas nobis porrigit, ut nos continuis beneficijs impleat, et iuuet in adversis. Verùm his obiter allatis ad alia emblemata, quibus reliquum Dianæ corpus stipatur, deflectere libet. Statuæ umbilicum tres cerui occupant, de quibus cum abundè supra dictum, Sphinges explicandas suscipiemus.
+
+# Sphinges.
+
+Utrumque Deæ latus duæ Sphinges muniunt, quæ ab Ausoniana descriptione non discrepant: iuuat autem ipsummet vatem audire in ternario numero.
+
+_Terruit Aoniam volucris, leo, virgo triformis_  
+_Sphinx, volucris pennis, pedibus fera, fronte puella._
+
+Inter vetustissimos verò scriptores non defuerunt, qui caudam draconis illi adiunxerint: sed in illa non morabor: consule si lubet Herodotum, Aelianum, Plutarchum, Solinum, Diodorum, Plinium, Clementem Alexandrinum, et Palæphatum, qui caninum etiam illi caput assignant. Potes prætereà genuinam eius effigiem ex infinitis propemodùm monumentis antiquis observare. Hoc dicam, Sphingem Aegyptium fuisse inventum, quam ex virgine, atquè leone compositam finxerunt: hac præsertim ratione ducti, quòd Quintili et Sextili mensibus, sub quorum tutela Leo et Virgo sunt, Nilus exuberet, ut Bellonius observauit. Apud Aegyptios item constans fama est, Sphinges præ foribus ædium sacrarum Isidis et Osiridis tanquam silentij, taciturnitatis, ac prudentiæ symbola fuisse collocatas, ut Synesius orat. de prouid. memorat: quibus signis templa Deorum adeuntes, ut tacitè vota facerent, monebantur, nec arcana numinum divulgarent, sed mysteria sub his latitare præsentirent. Hanc autem Aegyptiorum doctrinam ad Ephesios transijsse ex germana Isidis, et Cereris cognatione autumare licet. Nam sicut Sphinx Memphitica, sacra ceremoniasque seclusas esse, et silentio tegi oportere innuebat; sic non absimili ratione Cereris initia occultanda, obsignandaquè esse apud Ephesios figura
 
 ...
