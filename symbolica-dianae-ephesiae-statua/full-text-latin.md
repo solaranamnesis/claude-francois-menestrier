@@ -237,6 +237,12 @@ Cùm autèm nocturno tempore altum sit ubiquè silentium, hac de causa Cereri, a
 
 _Prima dedit leges, Cereris sunt omnia munus._
 
-Sed et alia ratio de huiusce animalis symbolo hìc expresso subesse poterit,
+Sed et alia ratio de huiusce animalis symbolo hìc expresso subesse poterit, si diligentiùs priscorum monumenta perpendantur. Aenigmata quippè et res abstrusas Sphinge designari nemo nescit. Naturæ autem arcana in tenebris iacere; obliquas asperasquè semitas esse, quæ mortales ad rerum naturalium intelligentiam introducunt, quis ignorat? Certè non oportet nos crassa pinguiquè Minerva abditas rerum causas naturæqué mysteria inquirere: Sed temporis diuturnitate subtilioriquè indagine opus est, ut quantulamcumque cognitionem referamus. Iam Sphingis symbola Gryphes excipiant.
+
+# Gryphes, Dracones, Aliæque
+
+## Feræ.
+
+Gryphem fictitium animal esse notum est, ideoquè in eius descriptione variant auctores. Pleriquè ex Aquila et Leone compositum volunt: Aristæus Proconnesius apud Pausaniam incuruum illi rostrum aquilarum more, auritumquè caput adscribit. Quin et Gryphem Aegyptium fuisse commentum vetustissima illa ænea Bembi tabula docet. In ea nempè gryphes multis varijsquè formis cælati apparent: quod indicium est, hoc animalis genus Isidi gratum acceptumquè fuisse. Quare non mirum, si Dianæ Ephesiæ attributi etiàm fuerint. Quamuìs non desunt qui inter peculiaria Solis symbola reponant: ob igneam præcipuè vim, qua præditum esse memorant: ut non inconcinnè etiam Lunæ, quæ Solis soror et coniux perhibetur, tribuantur, scilicet ob frequentem eius cum Sole coniuctionem, et à quò ignea fit. Iterum si ex Aquila et Leone gryphes compositi, Aquila rectè ad Solem, Leonis verò pars posterior (quòd et Macrobius, annotauit) quia imbecillior, ad Lunare sidus referri poterit. Sic igitur sub hoc figmento utriusque sideris socias vires, et effectus in omnibus rebus procreandis fouendisquè Ephesios prænotasse autumarim. Adhæc gryphes ob eximiam pernicitatem Lunæ competere videntur: quòd et de velocissimis alijs feris paulò ante referebamus. Post gryphes mystica sunt aliarum ferarum symbola, quæ Pantheras, vel leopardos, aut Tigres referre videntur; sed ob similitudinem quarumnam potissimùm sint, arduum est dignoscere: ideò his non immorabor, sed ad notiora pedem referam; præsertim cum in his nihil aliud quàm velocern lunæ cursum designari putem.
 
 ...
