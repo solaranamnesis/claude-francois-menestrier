@@ -139,6 +139,59 @@ Binæ Victoriole Dee pectus exornantes nos sollicitant, ut è sanctioribus Ephes
 _Illa duci sacras victori panderet alas,_  
 _Et palma viridi gaudens._
 
-Victorie igitur imagines adeò gratæ, accepteque fuerunt Dianæ Ephesie,
+Victorie igitur imagines adeò gratæ, accepteque fuerunt Dianæ Ephesie, ut non modò eas ad pectus decorandum admiserit, verùm etiam ab his
+coronari exoptarit; ut fidem facit Gordiani Pij æreus nummus ab ipsismet Ephesijs signatus, in quo Polymamma Diana visitur, dextra scipionem preferens, quæ è binis Victoriolis utrinque volitantibus coronatur: ante ipsam verò muliebris figura est cornu copie gestans. Singularis hìc ereus nummus cum infinitis propemodùm alijs in Museo Eminentissimi Cardinalis Francisci Barberini asservatur. Inter præcipua Victorie argumenta palma surgit, que rectè Cereri tribuitur: cum per palmam iustitiam designari palam sit: eò quòd fructus reddat pari cùm folijs equilibrio: id quod Pierius Valer. observavit. Hanc autem legum inventricem esse liquet vel ex Virgilio Aeneid. 4.
+
+_mactant lectas de more bidentes_  
+_Legiferæ Cereri, Phœboque, Patrique Lyæo.  
+
+Palmam preterea ad alia numina sub nostro simulacro contenta non inuitus traham. Et hanc arborem inprimis ipsamet Luna tanquam propriam facilè sibi vindicabit: cùm palmam hoc peculiare cum Luna habere rerum naturalium scrutatores observarint, ut sola omnium arborum per ortus Lunæ singulos progeneret. Lunam item vitæ humanæ præesse ex mystis præmonui: atqui palma pro ipsiusmet vitæ symbolo ab Orpheo commendatur: nec ineptè quidem, cum hæc arbor trecenta sexaginta commoda mortalibus elargiri feratur: quod optimè noverant Babylonij, qui suis in hymnis huiusce arboris proprietates decantare solebant. Iam si ramorum eius naturam attentiùs perscrutemur, illis cum terra peculiare quid inesse deprehendemus. Hi etenim quò maiori pondere grauantur, eò plùs in altum feruntur, surguntque adversùm pondus, ut Aristot. 7. Problem. et Plutar. 7. Sympos. referunt: pari etiam ratione, quò plus tellus sulco premitur, eò uberiorem frugum copiam agricolis suppeditat. Cæterùm cum Isim in Dianæ nostro simulacro reperiri non semel inculcarim, huic etiam palmæ appictæ quadrare possunt. Nam Isidi ex recondita hierophantum doctrina calceamenta ex folijs huiusce arboris intexta, Apuleio locupletissimo teste, probantur: _pedes_ (inquit) _ambrosios tegebant soleæ palmæ victricis folijs intextæ_. Et præterea in solemni eius pompa, is qui tertius incedebat, palmam auro subtiliter foliatam attollebat. Hæc de palmis dicenda habui.
+
+# Encarpus e Collo Dianæ,
+
+## Dependens cur è varijs fructibus.
+
+Terra cùm non hominum solummodò animaliumquè benigna sit parens, verùm etiam omnium frugum fructuumquè productrix, appositè propterea Ephesij encarpum, seù jugamentum lemniscatum ex varijs florum fructuumque generibus confectum è collo Dianæ dependere finxerunt, utpotè cùm hominibus ea suppeditarit, ac dispertierit, quibus vesci queunt. Inter præcipuos verò fructus, ex quibus sertum compositum esse videtur, poma et papauera emicant, et illa quidem convenienter, quia ob rotunditatem terræ figuram referunt. Hæc autem multiplicem ob causam Dianæ, seù mauis Cereri accepta, oblataque fuerunt. Papauer in primis apud omnes scriptores pro fertilitatis symbolo habetur: unde et Ovid. lib. 2. Metam.
+
+_Antes fores antri fecunda papauera florent._
+
+Huius etiam fructus telluris imaginem exprimere videretur, nam inæqualitas illa, seù turbinatum Papaueris corpus valles et confragosa montium ramenta denotat. Interna verò hominibus, et subditis assimilantur, uti Phurnutus retulit. Poterit et legiferæ Cereri attribui propter illa receptacula æquis interuallis inter se distincta. Callimachus in hymno ad Cererem papauer ei assignat. Apud Clementem Alexandrinum inter præcipua dona, quæ Cereri offerebantur, papauer recensetur. Quam fortè ob causam Virgilius papauer Cereale tanquam Cereris donum exoptatissimum prædicarit.
+
+_Nec non et lini segetem, et Cereale papauer_  
+_Tempus bumo tegere._
+
+Ob vim autem somniferam rectè Lunæ nocturnoque tempori conveniet: unde et illi apud scriptores somniferi cessit appellatio. Apud Ovidium nox cum papauerea corona depingitur: hoc enim tempore somnus propter humectationem potissimùm vires suas exercet. Reliquæ verò florum fructuumque figuræ, quas assequi facile non est, nihil aliud quàm omnis generis frugum copiam designare videntur, quam terra seminibus grauidata parit, funditque liberaliter: flos etenim in plantis frugem paulò post succrescentem pollicetur. Dianæ etiam fructus grati acceptique fuerunt, ut Pausanias in Achaic. testatum reliquit. Apud Patrenses enim Dianæ Laphriæ sacra facientes pomiferarum cuiusuis generis arborum fructus offerre solemne habebant. Non mirum igitur, si encarpus collo Dianæ appensus varijs fructibus et floribus adornetur. Verùm ne hic contextus incompositus dilabatur, vitta seù fascia tenui astringitur: ut per vittam obliquus flexuosusque Lunæ cursus intelligeretur.
+
+# Glandes Indices Primi Cibi
+
+## dum terra mansit inculta.
+
+Encarpi extrema querneæ glandes tanquam elenchi coronant, quæ Cereris beneficia satis superque arguunt: cum in primis rerum incunabulis hoc fructuum genus mortalibus alimenta præbuerit; sed Cereris beneficio in meliora, et mitiora commutata fuerunt. Quod apertè declarat Ovidius in Fastis:
+
+_Prima Ceres homine ad meliora alimenta vocato_  
+_Mutauit glandes utiliore cibo._
+
+Quò facit et illud Virgilij Georgicorum initio:
+
+_Liber, et alma Ceres, vestro si munere tellus_  
+_Chaoniam pingui glandem mutauit arista._
+
+Antiquitùs agricolis in more positum fuit, ut quotiescumque Cereri rem divinam facerent (faciebant autem, dum spicæ frugem emittere ceperant) querneis coronis uterentur. Cuius generis coronamenti meminit Athenæus lib. 15. Eundem feriunt scopum Maroniani versus Georg. lib. 1.
+
+_Falcem maturis quisquam supponat aristis,_  
+_Quam Cereri tota redimitus tempora quercu_  
+_Det motus incompositos, et carmina dicat._
+
+Non possum autem hìc silentio præterire grauissima illa verba, quæ in invocatione Apuleiana ad Lunam habentur: _Regina celi, siuè tu Ceres alma frugum parens originalis, quæ repertu lætata filiæ, vetustæ glandis remoto pabulo, miti commonstrato cibo nunc Eleusinam glebam percolis._ Postquàm verò huiusce Deæ beneficio terra nouis frumenti seminibus locupletata luxuriauit, glans contemni cœpta est: taleque fuit mortalium in glandiferas quercus odium, ut inde natum sit illud, [GREEK] _Satis quercus_. Et hæc fortè fuit ratio, cur querneas glandes huic encarpo tanquam in Deæ tropheo protomystæ suspenderint. Sed et Hecate, quæ à Luna non abludit, corona è quercu plexa decorari gaudebat, sicut Aeschylus declarat. Addamus insuper, quòd glandes appictæ Naturæ providentiam adumbrent: siquidem glandiferæ quercus primis hominibus alimenta subministrarunt. Ad hoc igitur Naturæ beneficium alludere volentes alium fructum glandibus associarunt, quem, ut ex eius figura orbiculari et oblonga apparet, dactylum esse autumo; neque præter rationem, cùm paulò ante palmam Cereris delitijs adiudicatam fuisse dixerimus; cuius fructus tanta est facultas, ut præterquam quòd in esu sit suavissimus, ex eo etiàm vina, et panem conficiant Orientales, et quadrupedibus edendum præbeant.
+
+# Mammæ Nutritionis Sive
+
+## alimentorum symbola.
+
+Aegyptiorum Theologia, Lunam matrem mundi, à Sole gravidatam fœcunda generationis principia diffundere superstitiosè credidit, ut in libros Aristotelis [GREEK] scribit Ammonius. Ab hoc disciplinæ fonte illos suam Isim essormasse reor: et fors inde factum ut hinc [GREEK], ex Platone apud Plutarchum lib. 1. de Iside et Osiride existimetur: quòd sit scilicet nutrix, et susceptrix generis humani. Proindè non mirùm si frequentèr eius imago pensilibus, et prominentibus mammis conspicua in priscis monumentis repræsentetur. Etiam apud Macrobium continuatis uberibus depingi paulò ante diximus. Ad Aegyptiorum imitationem Ephesij simulacrum Deæ Naturæ Polymammæ cum infinito scilicet uberum numero composuerunt. Cuiusmodi à Diuo Hieronymo, et Minucio Felice in Octavio depictam fuisse superiùs indicavimus. Apud Arnobium Cererem cum grandibus mammis efformatam intueri licet: idemque paucis lineis interiectis huic mammas item promptas adscribit. Pausanias in Messen. Dianæ nutricis, quæ [GREEK] indigitabatur, mentionem facit. Et apud eundem in Attic. legere est, Athenienses delubrum Telluri puerorum nutrici exædificasse. Apud Aristophanem verò hec puerorum altrix etiam vocitatur. Lucretius paritèr Cererem mammosam facit hoc versu:
+
+_At gemina et mammosa, Ceres est ipsa ab Iaccho._
+
+Geminam dixit acsi opimam et amplam innuere voluisset. Ex adductis nemo non videt, Isidi apud Aegyptios, et Macrobium; Dianæ apud Ephesios, et Messenios; Telluri apud Athenienses; Cereri apud Lucretium et Arnobium, nutricis seù mammosæ elogium æquè fuisse attributum: nec ab harum consortio Rhea eliminanda erit, cùm et ipsa matris titulo gaudeat. Conspirare autem hæc omnia videntur, ut hasce omnes Deas sub unico Dianæ nostræ simulacro copulatas firma probatione retinere possimus. Atqui non indecenter Diana, seù mauis Ceres Polymamma à priscis illis mythologis efficta, quàm superiùs [GREEK] dictam [GREEK] ex vetustissimis scriptoribus protulimus: quòd utiquè mater altrixquè sit omnium, quæ in ea vitam degunt. Alij [GREEK] dicunt, quòd omnia pariat, et recipiat. Sed et à Virgilio alma dicitur, ab alendo nimirum ut Servius interpretatur: benignis enim Telluris Lunequè viribus alimenta
 
 ...
