@@ -331,6 +331,36 @@ Verùm enimuerò hoc pretiosi nectaris alimentum non infantibus primulæ ætatis
 
 # Mellis Vires et Proprietates.
 
-Principiò quidem mellita medicamenta, diviniq; huius nectaris potiones quantum in medicina valeant, ipsimet medicinæ parentes Hippocrates et Galenus abbundè prodidere. Quæ Plinium etiam non latuere: tradidit quippe mel conservandi facultate pollere, ulcera vetusta expurgare: quod et Porphyrius significauit. Apuleius autem Platonicus in libello, quem de viribus herbarum contexuit, mirificas mellis virtutes in varijs ægritudinibus, morborumq; curationibus refert, observatque liquorem illum cum herbarum succis et mandragora mixtù saluberrimum esse. Porro inter præcipua remedia, quæ ebrijs medici olim adhibere solebant, panem melle oblitum Macrobius Satur. lib. 1. c. 7. recensuit. Mel quoq; desiccandi vim habet, firmatque vulnera ut idem autor Sat. lib. 7. cap. 12. observauit, his verbis: _Namquæ udanda sunt, corporis, vino foventur; quæ siccanda sunt, melle deterguntur_. Cum potiones amaræ præbendæ olim erant, poculi ora melle illinebantur. Possem infinita alia recensere; sed longioris id operæ, et aberramenti prolixioris foret. Addam tantummodo, corpora
+Principiò quidem mellita medicamenta, diviniq; huius nectaris potiones quantum in medicina valeant, ipsimet medicinæ parentes Hippocrates et Galenus abbundè prodidere. Quæ Plinium etiam non latuere: tradidit quippe mel conservandi facultate pollere, ulcera vetusta expurgare: quod et Porphyrius significauit. Apuleius autem Platonicus in libello, quem de viribus herbarum contexuit, mirificas mellis virtutes in varijs ægritudinibus, morborumq; curationibus refert, observatque liquorem illum cum herbarum succis et mandragora mixtù saluberrimum esse. Porro inter præcipua remedia, quæ ebrijs medici olim adhibere solebant, panem melle oblitum Macrobius Satur. lib. 1. c. 7. recensuit. Mel quoq; desiccandi vim habet, firmatque vulnera ut idem autor Sat. lib. 7. cap. 12. observauit, his verbis: _Namquæ udanda sunt, corporis, vino foventur; quæ siccanda sunt, melle deterguntur_. Cum potiones amaræ præbendæ olim erant, poculi ora melle illinebantur. Possem infinita alia recensere; sed longioris id operæ, et aberramenti prolixioris foret. Addam tantummodò, corpora humana, non solùm dum viva sunt, Apum muneribus recreari, et iuuari; sed postquam etiam anima destituta sunt, beneficio mellis seruari. Constat etenim, defunctos in melle sitos à fœtore et putredine defendi. Valet inprimis apud nos Xenophontis [GREEK] lib. 5. autoritas, asserentis Agesipolin Lacedemonium graui morbo aftectum, eoque die septimo consumptum, in melle positum, et Lacedæmonem reuectum, regiaque sepultura fuisse donatum. Statius in Siluis scribit Alexandri Magni cadauer melle litum putredini non fuisse obnoxium. Plinius etiam refert Hippocentaurum Claudio Cæsari ex Aegypto illatum in melle conditum fuisse, ex more rituque illius gentis: qui mos Babylonijs etiam et Assyrijs familiaris fuit. Quam consuetudinem non parùm iuuant illa Varronis [GREEK] apud Nonium in nomine, Vulgus: _Quare_, inquit ille, _Heraclides Ponticus plus sapit, qui præcepit ut comburerent, quàm Democritus, qui ut in melle servarent: quem si vulgus secutus esset, peream si centum denarijs calicem mulsi emere possimus._
+
+Verùm ne insipida quæ protulimus esse videantur, paucula tanquam bellaria apponam, quæ ad victus lautitiam, epularumque magnificentiam spectant. Frequentissimum apud veteres fuisse mellis usum in obsonijs, et condimentis vulgatæ autorum paginæ abundè testantur. Apicius insignis ille Opsophagus ante omnes idipsum non paucis in locis significauit, quem vide, si animus est tibi ista pernoscere. Ad parandas certè in lautioribus conuiuijs delitias, bellaria mellita excogitata, ac in secundis mensis apposita. Sic Varro apud Aul. Gellium lib. 13. cap. 11. bellaria secundæ mensæ mellita esse debere præcipit. Quò trahi possunt illa dulciarij pistoris apud Martialem verba.
+
+_Mille tibi dulces operum manus ista figuras_  
+_Extruit, huic uni parca laborat Apis._
+
+Placentæ etiam mellitæ auidè inter conuiuas expetitæ: unde Horatius epist. 2.
+
+_Pane egeo, iam mellitis potiore placentis._
+
+Placentæ ut plurimum ex farina hordacea, caseo, et melle simul commixtis parabantut. Edulia autem illa, quæ in melle cocta sunt, maximè concoctionem in ventriculo iuuare docet Plinius lib. 20. cap. 9. Idemque alibi refert semen tritum candidi papaueris cum melle in secundis mensis apponi solitum: plura prætermitto, quàm describo. Ad vinum melle temperatum venio, quod vini genus in lautioribus conuiuijs olim expetitum: Unde est illud notum Martialis in Xenijs.
+
+_Attica nectareum turbatis mella falernum,_  
+_Misceri docet hoc à Ganymede merum._
+
+Primus omnium mortalium Aristæus mella vino miscuit; miscendi autem rationem Plinius lib. 14. cap. 90. de re rust. Columnella edocent. Sed quoniam hæc potiùs gulæ irritamenta, quàm res humano generi necessarias respicere videntur, ad alia luculenta Apum munera, quæ in vitæ humanæ subsidium munificè concessa sunt, pedem referre lubet.
+
+Ceræ non infrequentiores, quàm mellis usus: hac Deorum, heroumq; imagines formabantur; exornabantur atria: hinc maiorum vultus ducti; accensi Deorum funales; Pictorum tabulæ inceratæ: hinc obserata vulnera: unde Valerij Flacci versus,
+
+_Vel pice, vel molli concludere vulnera cera._
+
+Pugillares seu tabellæ ceratæ, in quibus stilo æneo, aut ferreo literas exarabant. Plautus in Asinaria.
+
+_Nec ulla sit cera, ubi facere possit literas._
+
+Præter allata Apum munera Propolis potest adiungi: sed ne longior sim, ad Plinium lib. 11. cap. 7. te remitto: qui rectè dixit Apes hominis causa genitas esse; nam quicquid laboriosissima Apum familia operatur, in communem hominum utilitatem cedit. Ex dictis liquere satìs puto, cur Dianæ seu Naturæ sacræ Apes. Istud tantum corollarij loco attexam, in sanctiore Eminentissimi Cardinalis Francisci Barbarini Ceimeliarchio gemmam videri in qua tres Apes cum aratro expressæ, quarum duæ junctis sub jugum ceruicibus terram proscindunt; altera verò coloni vice fungens stimulo comites excitat. Quo hieroglyphico tanquam muta quadam poësi animos segnes non solùm ad labores incitare, verùm etiàm tacitis religionis Eleusinæ præceptis instituere prisci sine dubio voluerunt.
+
+# Rosæ.
+
+Rosæ binæ hinc atquè hinc dispositæ, solertis ingenij arbitrio Apibus intermixtæ fuerunt, ut omnium florum fructuumquè primitias designarent: flores certe fructus promittunt: rosæ præsertim, quas poëtæ indiscriminatim pro quibuslibet ferè floribus ponunt. Horum vestigijs Dianæ opifex inhærens rosam illi tribuit, credo ad terræ fertilitatem designandam. Ac licet rosas tanquam sibi proprias Venus vendicet, non obstat tamen quin et has Cereri adjudicemus. Percelebris enim est illa vestis Cereris apud Apuleium ex varijs florum generibus contexta. Rosacea item illa corona, de qua plenius supra disseruimus. Quid si et hic rosarum ornatus memoriam raptus Proserpinæ inculcet? Ferunt quippè eam Siculis in campis rosas legentem à Plutone raptam. Ut ut sit, Diana rosis ornata certè inducitur, nempè quòd earum calices nocturno tempore ut plurimùm explicari soleant. In pompa vero Magnæ matris rosæ
 
 ...
