@@ -245,4 +245,62 @@ Sed et alia ratio de huiusce animalis symbolo hìc expresso subesse poterit, si 
 
 Gryphem fictitium animal esse notum est, ideoquè in eius descriptione variant auctores. Pleriquè ex Aquila et Leone compositum volunt: Aristæus Proconnesius apud Pausaniam incuruum illi rostrum aquilarum more, auritumquè caput adscribit. Quin et Gryphem Aegyptium fuisse commentum vetustissima illa ænea Bembi tabula docet. In ea nempè gryphes multis varijsquè formis cælati apparent: quod indicium est, hoc animalis genus Isidi gratum acceptumquè fuisse. Quare non mirum, si Dianæ Ephesiæ attributi etiàm fuerint. Quamuìs non desunt qui inter peculiaria Solis symbola reponant: ob igneam præcipuè vim, qua præditum esse memorant: ut non inconcinnè etiam Lunæ, quæ Solis soror et coniux perhibetur, tribuantur, scilicet ob frequentem eius cum Sole coniuctionem, et à quò ignea fit. Iterum si ex Aquila et Leone gryphes compositi, Aquila rectè ad Solem, Leonis verò pars posterior (quòd et Macrobius, annotauit) quia imbecillior, ad Lunare sidus referri poterit. Sic igitur sub hoc figmento utriusque sideris socias vires, et effectus in omnibus rebus procreandis fouendisquè Ephesios prænotasse autumarim. Adhæc gryphes ob eximiam pernicitatem Lunæ competere videntur: quòd et de velocissimis alijs feris paulò ante referebamus. Post gryphes mystica sunt aliarum ferarum symbola, quæ Pantheras, vel leopardos, aut Tigres referre videntur; sed ob similitudinem quarumnam potissimùm sint, arduum est dignoscere: ideò his non immorabor, sed ad notiora pedem referam; præsertim cum in his nihil aliud quàm velocern lunæ cursum designari putem.
 
+# Dracones.
+
+Sacrorum Ephesiorum præsides multa (ut præfati sumus) ab Aegyptijs mutuati, non mystico tantummodo Sphingis symbolo, verùm etiàm alijs primarium ciuitatis numen cohonestare volentes, geminos Dracones antiquissimo eius simulacro adiunxerunt. Nequè hoc sine recondito aliquo sensu factitatum crediderim: cùm inter cætera animantium genera, quæ summo in honore apud Aegyptios olim fuerunt. Dracones siuè Serpentes enumerentur; quorum effigies in Isiaca Bembi tabula non semel appictæ conspiciuntur. Ac ne priscorum vatum subsidio carere videamus, Ovidium dabimus, qui serpentem in pompa Isidis describit:
+
+_Plenaquè somniferis serpens peregrina venenis._
+
+Juvenalis Sat. 6. etiam serpentes simulacro Isidis comitem inducit hoc versu:
+
+_Et mouisse caput visa est argentea serpens._
+
+Tanta autem fuit apud priscos veneratione serpens, ut inter præcipua gentium mysteria decantaretur. Idipsum luculentèr Clemens Alexandrinus, Julius Firmicus, et Justinus Mart. ostendunt. Nec defuere, qui serpentibus divinitatem inesse dixerint: in quorum numero Taautes apud Eusebium, idquè ex Phœnicum Theologia. Quare cum ad Græcos eadem religio, vel potiùs superstitio translata fuerit, Ceres potissimùm serpentes elegit. Omninò Apuleiana Ceres draconum in pinnato curru conspicua incedere fingitur. Orpheus verò in hymnis Cererem in curru, Draconesque cam trahentes describit: quod splendidè Ovidius Fast. lib. 4. expressit, dum Cereris ex Sicilia profectionem describit.
+
+_Quò simul ac venit, frenatos curribus angues_  
+_Iunxit, et æquoreas sicca pererrat aquas._
+
+Tale quoquè est illud prælaudati vatis, dum Deam Celei Menolinæ hospitium deserentem recenset:
+
+_Dixit, et ingrediens nubem trahit, inquè dracones_  
+_Transit, et alifero tollitur axe Ceres._
+
+Non pauca marmorea monumenta eodem planè schemate, quo hìc depingitur, Cererem affictam referunt: causam verò huiusce figmenti inquirere conducit. Draconis symbolo terram significari credidere multi, quòd eam toto corpore penè perrepens verrere videatur. Sed quoniam non Cereris modò numen, verùm etiàm Dianæ, sub hac statua agnoscebatur, Diana ipsamet adeunda erit, ut rationes ob quas serpentes seu dracones in complexum receperit, inueniamus. Pausanias in Arcad. scripsit, inter alia signa, quæ in Dominæ siuè Heræ fano reponebantur, Dianæ unum repositum fuisse ceruina pelle velatæ, pendente ex humeris pharetra, altera manu lampadem, Dracones duos altera gestante. Naturæ numen prudentissimum fuisse ex veterum elogijs superiùs ostendimus. Prudentiæ enim symbolum Serpens, quem et insuper sapientiæ indicem vetustas esse voluit. Hunc præterea in delicijs fuisse ferunt propter peculiarem illam excubandi vigilandique vim, qua præditus est, et ob acutissimam oculorum aciem, quæ omnia Lunæ indefessæ competunt: siquidem suo splendore noctu cuncta collustrat. Per eius insuper eximiam celeritatem, flexuosos meatus, lapsusque erraticos, Lunæ iter sinuosum designari potest. Dracones demùm cornibus è fronte prominentibus insigniti; et hanc fortassis ob causam sub Dianæ tutela admissi fuerunt, quia omne cornigerorum genus Luna, uti iam dictum est, sibi vendicat.
+
+# Boves.
+
+Peculiari quadam religione Boves Cereri, Lunæ, nec non et Isidi consecrauit antiquitas. Cereri quidem ob agriculturam, quia semina vix absque à ratione proveniunt. Et hoc unico symbolo telluris fœcunditas demonstratur: huiusque sub effigie à nonnullis gentibus, et præsertim à Phrygibus cultam fuisse ex priscis monumentis deprehendimus. Aegyptij quoquè hieroglyphicis literis, cùm terram significare volunt, ponunt bovis figuram. Dianam quinetiam in insula quadam sinus Persici tauri sub imagine summo in honore habitam fuisse Dionysius Alexandrinus memorat. Apud priscos verò tanta fuit huiusce animalis veneratio, ob summam illius in rusticis laboribus sustinendis patientiam ac tolerantiam, ut tàm capitale esset bovem aratorem necasse, quàm ciuem: cuius rei exemplum habeatur apud Plinum. Huius etiam encomium Varro lib. 2. de re rust. decantauit his verbis: _bos socius hominum in rustico labore, et Cereris est minister_. Non absimilia ab Aeliano var. histor. lib. 5. referuntur, cuius hæc sunt: _bovem aratorem, qui jugum trahit, vel in aratro, vel in palustro ne mactes: quia ille etiam agricola est, et humano generi laborum socius_. Pythagoras apud Ovidium mansuetam, cicuramque huius animalis naturam explicans in hæc verba prorupit:
+
+_Quid meruere boves, animal sine fraude doloque_  
+_Innocuum, simplex, natum tolerare labores._
+
+Hanc igitur ob causam in sacris Cereris interdictum erat ne bos adhiberetur, propter varia commoda, que mortalibus afferre solet. Iterùm Ovid. in Fast.
+
+_A bove succincti cultros remouete ministri._  
+_Bos aret, ignauam sacrificate suem._
+
+_Apta jugo ceruix non est ferienda securi,_  
+_Vivat, et in dura sæpe laboret humo._
+
+Cur verò hoc animal Lunæ sit adscriptum, ante alios nobis rationem suggerit Luctatius Grammaticus his verbis. _Luna verò quòd propiùs Tauro adhæreat, vacca idest bove figurabatur._ Eius autem exaltationem esse in Tauro Julius Firmicus, et Porphyrius testantur. Lunæ currui boves Ausonius ad Paulinum adsignat:
+
+_Iam succedentes quatiebat Luna iuuencos._ Et Claudianus:  
+_Quo Phaëton irrorat equos, quo Lupa iuuencos._
+
+In nummis antiquis Sept. Severi, Antonini Caracallæ eius filij, nec non et Juliæ Piæ Luna stat in biga, quam gemini boves trahunt. Bovis item cornua Lunæ præsertìm fuisse gratissima testatur Orpheus hymno Dianæ. Quin et ab illorum figura peculiare nomen sortita est [GREEK] enim et [GREEK] dicebatur, vel à boum cornibus, vel ab aspectu quo apparet, cùm corniculata est: aut certe quia id animal terræ culturæ deputatum est. Boves item apud Aegyptios Isidi in delicijs præcipuè fuerunt, uti monuit Herodotus, referens illis morem fuisse boves mares Osiridi, fœminas verò Isidi dedicare: cuis auctoritati Diodorus Siculus adstipulatur. Inter alia autem antiquitatis analecta, quæ in Musæo meo asseruantur, Isis ex nigro lapide effigiata visitur, supra cuius caput bovina cornua assurgunt, quibus sumnia retum abundantia, et fertilitas designatur: nam secundum Salomonis 14. Proverb. sententiam, _Ubi plurimæ segetes, ibi manifesta est fortitudo bovis_. In apparatu sacrificali, seu pompa Isiaca, bos inter alia fercula à Protomystis præferebatur, ut in marmore perueteri observavi. Dianæ porrò apud Romanos, non fecùs quàm Isidi apud Aegyptios, boum cornua sacrata deprehendimus. Hi etenim in vestibulo Templi Dianæ Montis Aventini ex vetustissimo ritu boum cornua affigebant. Quid si omnes hasce Deas bove gaudere diximus? Numquid etiam in ipsius Naturæ parentis delicijs esse porerunt? Certè quidem: nam ad illam omnium ciborum, et alimentorum, quibus mortales suftentantur, officium pertinere antiqui putarunt. Bovi quippè nomen à nutriendo factum volunt. [GREEK] enim nutrio sonat: si quidem labore suo in terra exercenda nos continuo nutrit. Vetus autem Glossa super Exod. cap. 22. beneficia, quæ à bove percipimus, enumerans: _Bos_ (inquit) _inprimis immolatur, arat, pascit carnibus, lac dat, et corium diversis usibus ministrat_. Ad hæc multiplicia commoda Hesiodus respiciens bovem inter familiæ partes reposuit. Is enim libro, qui inscribitur Opera et Dies, domum ex viro, muliere, et bove aratore constare indicauit. Quàm verò appositè Ephesij boves laboriosissimos utilissimis Apibus associarint, in hoc marmoreo Naturæ simulacra mox ex sequentibus innotescet.
+
+# Apes.
+
+Solæ ex volatilium, et infectorum genere Apes Dianæ consecrari, ipsiusquè corpus symbolico argumento cohonestare meruerunt. Et hæ quidem ternæ utrimquè effictæ, ac rosis immixtæ latera Deæ muniunt. Nec immmeritò sane: cùm juxta præceptum Plinij rosæ juxta alvearia sint collocandæ. Cur vero Dianæ, Cereri, Terræ, et rerum parenti Naturæ in delicijs fuere? An cùm virginitatis cultrix sit Diana, Apes ei adscripte ob incorruptam virginitatem? Castas profecto Apes Petr. Damianus epist. 15. lib. 1. describit, cum inquit: _Apes sobolem successuræ  posteritatis enutriunt, ut virgines perseverent._ Quin et naturali quodam instinctu res Venereas adeò aversantur, ut eos, qui recèns operam Veneri dederunt, acriùs inuadant, quod Plutarchus in coniugalibus præceptis annotauit. Consona etiam sunt illa, quæ de integritate earum virginali cecinit Virgilius Georg. lib. 4.
+
+_Illum adeo placuisse apibus mirabere morem,_  
+_Quod nec concubitu indulgent, nec corpora segnes_  
+_In Venerem soluunt, aut fætus nixibus edunt._
+
+Quod ipsum luculentèr Quintilianus in declamatione, quæ _Apes pauperis_ inscribitur, ostendit his verbis: _Non illas libido progenerat, domitrixq; omnium animalium Venus_. Eucherius autem Apem virginitatis symbolum esse tradit. Vide, si lubet, Albertum Magnum lib. 17. de Antract. 2. cap. 2. et miram Apum castitatem agnosces. Quare cùm Diana summoperè virginum moribus, ac consortio delectetur, non mirùm si purissimas Apiculas in complexum tanquam aptissimas. comites receperit. An non Dianæ exemplo Apes in montibus degunt, et locis ab hominum consuetudine remotis gaudent? Aliam causam habe: Apes rorem ex floribus legunt, favos inde conficiunt; non ineptè igitur Dianæ seu Lunæ alumnæ dicuntur: cum Aleman poëta Lyricus, vel ipso Macrobio Satur. lib. 7. teste, rorem aëris ac Lunæ filium esse dixerit: et peculiari encomio Luna roscida nominetur. Aliud occurrit, quod hìc attexam; Apes propter eximiam velocitatem Lunæ tribui: scitè enim ab Ovidio agiles nuncupantur. Verùm libetne, ut quid iam Apis cum Cerere peculiare habeat, disquiramus? Porphyrius in antro Nympharum Apes Cereris ministras statuit: numquid ob puritatem? hoc equidem sentire Pindarus in Pyth. videtur: cuius interpres ad hæc verba,
+
+[GREEK]
+
+_Propriè quidem_, ait, _Apes Cereris ministras appellauit propter earum puritatem: impropriè verò omnes alias animantes._ Idem Pindarus alibi
+
 ...
