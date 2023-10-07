@@ -411,4 +411,70 @@ At si tantus fuit in substructione splendor, non minor fuit donariorum opulentia
 
 Finis.
 
+# Lector.
+
+_Ne quid eorum, quæ ad religionem Ephesiæ Dianæ visa sunt pertinere, periret, Signa etiam atque Numismata, que ipsius Dianæ insignia non ineptè quis dixerit, excudenda curauimus. Tria Signa prima marmorea in ædibus Farnesiorum seruantur: quartum marmoreum apud Serennissimum Leopoldum Etruriæ Principem: alia duo marmorea apud Leonardum Augustinum Senensem: reliqua in gemmis Camilli Maximi Junioris, atque Leonardi Augustini: quæ sequuntur Numismata ex Ceimeliotheca Barberina promuntur._
+
+# Lucae Holstenii Epistola Ad Franciscum Cardinalem Barberinum
+
+## De Fulcris Seu Verubus Dianæ Ephesiæ
+
+### simulacro appositis
+
+## Romæ,
+
+### Apud Joannem Baptistam Bussottum. 1688.
+
+#### Superiorum Permissu.
+
+# Francisco Cardinali Barberino
+
+## Optimo Studiorum Patrono.
+
+### Lucas Holstenius Fel
+
+Cum eruditum opusculum Claudij Menetreij domestici olim tui, solertissimi rei antiquariæ promicondi, singulari beneficio in publicam lucem proferri jusseris, quo Dianæ Ephesiæ statuas ænigmatis reconditis inscriptas luculenter explicauit; non abs re futurum existimaui, si cogitationem de antiquis eiusdem Dianæ numismatis pridem mihi subortam eadem opera ad te deferrem. Feci hoc eò libentius, et excusatius ut spero, quòd argumentum Menetreio intactum, nec ulli Antiquariorum hactenùs observatum complectatur. Tui autem judicij hanc scriptionem facio, quòd nemo te rectius intelligat, quàm multiplicem usum accurata antiquitatis cognitio ad reliquum omne studiorum genus ornandum, augendumque præstet. Cum enim recte judicares, nihil in veterum scriptis tam abstrusum, aut obscurum delitescere, quin lucem aliquam à priscis monumentis mutuari possit, ea tibi causa fuit, cur Bibliothecæ, quàm celeberrimam instruxisti, veterum tabularum, signorum, numismatum, et inscriptionum supellectilem copiosam adiunxeris; ut universam eruditæ antiquitatis memoriam doctorum hominum oculis spectandam subijceres. Nunc rem ipsam cognosce. Nummi veteres Dianæ Ephesiæ effigie signati, quorum nonnullos tabellæ adiunctæ exhibent, eo a statuis Menetreij industria productis differunt, quòd Deam mammarum pondere onustam fulcris quibusdam siue destinis, quos scipiones nodosos existimes, utrinque subrigant. Eaque in re ita constanter consentiunt omnes quotquot vidi, vidi autem quamplurimos, ut simulacrum Ephesium olim eodem modo suffultum fuisse omnino affirmandum putem. Neque vero ea de re nos dubitare permittit Minucij Felicis eruditissimi scriptoris locus, ubi Dianæ Ephesiæ signum mammis multis verubusque extructum commemorat. Sed in loco isto peruertendo Criticorum acumen mirificè hactenùs sese exercuit: adeò quidem, ut nisi vindiciæ ex libris et monumentis antiquis opportunè dentur, posthac futurus sit intestabilis. Rem clarius explico, ut quàm infelicitèr Felix ab editoribus exceptus, habitusque fuerit, penitus perspiciatur.
+
+Princeps Romana editio a Fausto Sabæo ad Vaticani codicis fidem procurata ità locum, quem dixi exhibet: _Diana interim est altè succincta venatrtx; et Ephesia mammis multis et verubus extructa; et Trivia trinis capitibus et multis manibus horrifica._ Ita triplex unius Dianæ numen notis, signisque peculiaribus accuratè ex fabulosa Gentilium theologia distinxit eruditus scriptor. Lectionem primæ editionis religiosè servavit Basileensis, et Heidelbergensis Franc. Balduini; tùm Romana posterior, que ex Fuluij Ursini recensione prodijt; nisi quod coniecturam suam vir accuratissimè doctus margini appingens, non _verubus_ sed _uberibus_ legendum moneat. Desiderij Heraldi Parisiensis advocati editio duplex deinde Romanam lectionem expressit, sed altera _veribus_ una literula mutata pro _verubus_ exhibet, ex ipso, ut notat, veteri manuscripto, qui Leonis 10. munificentia ex Vaticana Bibliotheca in regiam migrauit. Missus enim fuit codex ille singularis ad Franciscum regem una cum excuso exemplari, quod eius nomini editores Romani inscripserant. Leuis illa mutatio Heraldum perpulit, ut ipse vel _uberibus_ cum Ursino, vel _tuberibus_ cum Josepho Scaligero legendum censeret; in priorem tamen coniecturam propensior. Et hi quidem coniecturis eatenùs indulserunt, ut textu Minuciano manus interim abslinerent. At cæteri deinceps non æque fuerunt religiosi. Nam Joannes Uvouverius, ciuis meus, doctrina et judicio alioquin præclare instructus, Ursini coniecturam ita amplexus est, ut in contextum Minucij pro verissima recipere non dubitarit. Huius exemplum postea Rigaltius Lutetiæ, et nuperrime iterata editione Bataui sunt secuti. Nec parum præsidij huic confidentiæ attulisse videtur Justi Lipsij auctoritas, quem correctionem istam ad Taciti Annal. lib. 3. comprobasse sciebant. Et hi quidem omnes cum presso ustigio Ursini semitam calcassent, diversam institit Geuerhartus Elmenhorstius, homo sane haud indiligens: qui Romanam lectionem mutare non ausus, traiectione verborum locum misere luxauit in editione Hamburgensi maiori, ubi Minucij verba ita deformata leguntur: _Diana interim est altè succincta venatrix verubus exstructa; et Ephesia mammis multis; et Trivia trinis capitibus etc._ Sed hæc leuiora sunt præ illis, quæ iam ante ad eundem Minucij locum commentus fuerat Petrus Faber, celebris legum antistes, lib. 3. semestr. cap. 3. Is acri disputatione lacessens S. Hieronymum, quòd Dianam Ephesiam multimammiam a venatrice, quæ arcum tenet, alteque succincta est, distinxerit; magno quidem sed irrito conatu euincere studet, Cererem mammosam veteres nouisse, Dianam mammosam ignorasse. Ideoque Minucij verba, ne Hieronymi caussam iuuent, distorquendo corrigendoque sic interpolat: _Diana interim est alte succincta venatrix Ephesia; et mammis multis Ceres exstructa._ Atqui hoc est, non deprauatum castigare locum, quod ipse de se prædicat, sed integrum corrumpere. Abstinuisset utique infelici concertatione tantus vir, si Dianæ Ephesiæ signum vetus, aut nummos, vel per transennam inspexisset. Adiungam superioribus celebrem nunc in Gallijs virum, fori huius antiquarij regem, Joan. Tristanum. Is tomo 1. exhibet nummum [GREEK], siue Caduenorum, (ita enim Stephano, Plinio, sibique ipsi alibi vocari ostendam) Dianæ Ephesiæ imagine signatum; eique illustrando vexatum Minucij locum ingenij periculum et ipse facturus adducit. Repudiatis igitur verubus, quam non genuinam Minucij vocem, sed Uvouverij, omnia alia sentientis, commentum existimat; uberibus quidem legendum censet, sed longè alio quàm cæteri omnes sensu. Etenim cum inter mammas et ubera aut nullum, aut non nisi ineptissimum discrimen à grammaticis statui rectissime perspexisset, ideoque vix sine vitio tautologiam istam accurato, et pressæ dictionis scriptori tribui posse, per quam ingeniosè mammas multas, uberesque Dianæ Ephesiæ de turgidis multoque lacte distentis censuit explicandas. Quo quidem Ursini, et quotquot eius vestigia posteà legerunt criticorum deprauationem apertè iugulat; Minucij tamen mentem non est assecutus, quòd recenti et interpolatæ editioni, quâ usus videtur, fidem temerè adibuerit.
+
+Cæterùm istis omnibus in perspicuo Minucij loco oculos, mentemquè glaucoma præstrinxit, quòd nequaquam exploratum haberent, quo significatu verua antiquis linguæ Latinæ auctoribus propriè dicta acceptaquè fuerint. Cùm enim assatoria illa, siue transfixoria, ut Papias vocat, quorum in coquina usus est, et quæ in Gallica Minucij interptetatione meritò ridet Tristanus, ad Dianam Ephesiam extruendam nihil quidquam facere viderent; non nisi de verutis siue iaculis Dianæ venatricis Minuciana verua accipi explicarique posse uno omnes, quod miror, consensu censuerunt. Unde factum, ut tot summi et incomparabiles viri ad vocem illam interpolandam certatim conspirarint. Ego vero adversus coniuratum agmen verua ista extra vitium esse affirmo, eaque nec Dianæ Ephesiæ, nec Minucio subtrahenda pertendo. Nam verua hæc quibus Dianam suam exstruebant Ephesij, non pila aut veruta sunt, sed fulmenta ferrea oblonga, quæ brachijs supposita totam mammosi pectoris molem sustinebant.
+
+Cùm enim antiquissimùm hoc signum ad Aegyptiorum simulacrorum instar pedibus esset arctè compressis, tantilla basis superimposito corporis ponderi ferendo impar, adminiculis suffulcienda fuit; quibus subtractis universam molem fatiscere et collabi necessum erat. Ea fulcra siue sustentacula, quod ex ferro longius producta essent, Minucius propria et eleganti voce verua dixit, non sequioris, quo vixit, sed Augustæi sæculi usum secutus. Nam Glossarium Latinum optimæ notæ, quòd in tribus vetustissimis codicibus Vaticanis extat, verua virga et virgulas ferreas interpretatur. Eamque explicationem veram ac genuinam esse res ipsa me docuit: cuius etiam nunc te meminisse arbitror Eminentissime Cardinalis, quòd juxtà mecum oculis eam olim usurpaueris. Anni enim sunt, ni fallor, quindecim, cum Jesuitarum socictas ad S. Andreæ in Quirinali, dum novæ ædificationis fundamenta moliretur, lapides aliquot Tiburtinos prægrandes ordine quadrato dispositos offenderet: quorum duo ità erant inscripti, uti cum te jubente et amminiculante ex saxo scabro, et male polito excepi.
+
+HAEC. AREA. INTRA. HANCCE  
+DEFINITIONEM. CIPPORUM  
+CLAUSA. VERIBUS. ET. ARA. QUAE  
+EST. INFERIUS. DEDICATA. EST. AB  
+IMP. CAESARE. DOMITIANO. AVG  
+GERMANICO EX. VOTO. SUSCEPTO  
+QUOD. DIV. ERAT. NEGLECTUM. NEC  
+REDDITUM. INCENDIORUM  
+ARCENDORUM. CAUSA
+
+Cippi illi utroque latere bina foramina, et veruum siue virgarum ferrearum vestigia plumbo circumsusa seruabant; quibus olim inter se coniuncti aream interiorem ità clauserant, ne aditus vulgò pateret. Ibi tum reipsa perspexi, egregiè falsum esse N. Rigaltium hominem naris emunctissimæ, dum ad Finium regundorum scriptores verua ista stipites instar subularum præacutos explicat, quæ nihil acuminis, aut cuspidis habuisse oculis manibusque cognoueram. Eodem vetustatis sensu Marcellus, antiquus rei medicæ auctor, sanguinis profluuio ex naribus sistendo præscribit cap. 10. _Vertu ferreum candens in aceto adsiduè extingue, et fumum eius naribus ducito._ Quis non videt simpliciter hìc et absolutè ferri in virgam oblongam producti massam intelligi, qua forma fere omne ferrum rude et infectum vulgo venit.
+
+Verùm nihil ad Minucij mentem, et rei de quà agitur illustrationem adferri potest aptiùs versibus Prudentij ex priori contra Symmachum carmine; quibus geminorum fratrum Castoris et Pollucis simulacra describit eo habitu gestuque, quò tunc in sua sibi æde ad viam sacram visebantur. Versus isti sunt:
+
+_Gemini quoque fratres_  
+_Corrupta de matre nothi, Ledeia proles,_  
+_Nocturnique equites, celsæ duo numina Romæ_  
+_Impendent retinente veru; magnique triumphi_  
+_Nuntia sussuso figunt vestigia plumbo._
+
+Graphice depingit Dioscuros currentium gestu itâ effigiatos, ut extra perpendiculum et basin prominentes spectantibus non sinc horrore, ac metu impendere viderentur. Impendent enim quæ suprà caput iamiam casura pendent, ut recte ait Valla. Timor autèm, et admiratio apud rude et superstitiosum vulgus religionis opinionem conciliabat. Eum metu poëta Christianus ridet, cum nullum esset ruinæ, aut fugæ periculum; quòd veru, hoc est vectis siue uncus ferreus a tergo infixus eos retineret, pedesque basibus applumbati moveri non possent. Duplex hoc retinaculorum genus, queis numinum simulacra veluti vinculis constricta defigebantur, Arnobius similitèr lib. 6. nationibus exprobrat. _Si permanendi,_ inquit, _necessitatem patiuntur, quid miseriùs his esse, aut quid infeliciùs poterit, quàm si eos in basibus ità unci retinent et plumbeæ vinctiones?_ Utrumque etiam conjungit lex. 2. Dig. de sepulcro violato. _Celsus querit, si neque applumbata fuit statua, neque adfixa, an pars monumenti effecta sit, an vero maneat in bonis nostris._
+
+Sed Prudentius quoque Minucij fatum et malam criticorum manum ut experiretur, eiusdem vocabuli non satis recte observata significatio fecit. Unde iam olim in peruetustis membranis Vaticanæ bibliothecæ, _retinente solo_, pro _retinente veru_, substitutum videre est: quàm lectionem Aldus, alijque eius fidem secuti expresserunt. Georgius autem Fabricius, cum in suis exemplaribus, _retinente veru_ constanter scriptum reperisset, nec tamen proprium vocis usum apud veteres satis haberet perspectum, ad correctionem, sacram criticorum ancoram, confugit. Quocirca cum Dioscuros hastis siue pilis ad decursionem volgò armari sciret, veru hoc ex rudi et obtuso ferro in verutum cuspide spicauit; et interpolata dictione, _impendent, retinentque veru,_ de suo quo pollebat ingenio procudit: eaque lectio exinde plerasque recentiores editiones insedit. Tantum vero absum eam ut probem, ut contra priscam et genuinam mordicus tueri non dubitem, cùm rei ipsius perspicuitate, tùm veterum librorum auctoritate fietus: in quibus facilè principem statuo codicem præstanrissimum Urbinatis Bibliothecæ, quæ nuper Alexandri Septimi sapientissimi Pontificis immortali beneficio Vaticanæ accessit; in quo ità scriptum, reperi.
+
+Hæc ad Dianæ Ephesiæ statuas, nummosque veteres illustrandos scripsi ut mutua eorundem ope duo veterum scriptorum loca minùs rectè hactenùs intellecta à criticorum corruptelis vindicarem: tùm verò ut illustri exemplo ostenderem, antiquitatis studium non metiendum inani delectatione, sed suum illi constare fructum si rectè colatur.
+
+Finis.
+
+# Jo. Petri Bellorii Notæ In Numismata
+
+## Tum Ephesia, tum Aliarum Urbium Apibus Insignita.
+
+### De Ape, ac Lyra
+
+#### Aspice dulcis Apis, Lyra dulcis in Astra locantur: Hæc cantu, illa favis, munus utrumque Deum.
+
 ...
