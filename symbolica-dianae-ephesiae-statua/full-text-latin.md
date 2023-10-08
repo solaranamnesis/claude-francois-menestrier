@@ -516,15 +516,15 @@ Emin. Tuæ
 
 _Observantiss. humillimusq; seruus Jo. Petrus Bellorius.
 
-# Tabula 1. --- 1.
+# [Tabula 1. --- 1.](https://cdn.solaranamnesis.com/Menestrier/19.png)
 
 Apis Dianæ symbolum. Exaduerso: [GREEK] _Ephesiorum_. Lyra Apollinem refert. Porrò hi salutares Dij ijsdem titulis, et pari veneratione colebantur; omniumque primi Ephesij (Deli fabula repudiata) Apollinem, ac Dianam apud se natos gloriabantur. Tacit. Ann. l. 3. _Primi omnium Ephesij adiere memorantes, non ut vulgus crederet, Dianam atque Apollinem Delo genitos, esse apud se Cencbrium amnem, lucum Ortygiam, ubi Latonam partu grauidam, et Oleæ quæ tum etiam maneat, adnixam edidisse ea numina_. Ephesijs præterea celebris cultus fuit Larissæi Apollinis, cuius templum, in ipsorum agro commemorat Strabo. Multiplex verò est ratio, qua Apis Ephesiæ Artemidi consecrabatur; namque illa virginitatem colit, rorem Lunæ ex floribus legit; atque Ephesinæ Cereri summoperè grata est, ut Menetreius adnotauit in Apis hierogrammatismo, et infra ex alijs Ephesiorum nummis, eodem hieroglyfico insignitis abundè patebit.
 
-# Tabula 1. --- 2.
+# [Tabula 1. --- 2.](https://cdn.solaranamnesis.com/Menestrier/19.png)
 
 [GREEK]. _Ephesiorum._ Apis, ut in superiori nummo; exadauerso: [GREEK] _Menippus_, et Ceruus animal Dianæ venatrici dicatum: quare ipsa Dea Elaphiea Homero [GREEK], et Euripidi [GREEK], seu Ceruicida fuit cognominata. Libanius or. 32. asserit Ephesiorum moris fuisse Ceruam insculpere suis nummis, ob beneficia in ipsos à Diana collata. _Apud Ephesios etiam nummus Ceruam expressam fert, pro remuneratione magnorum Deæ beneficiorum._ De Palma arbore in sequentis tabulæ 5 nummo infra dicendum.
 
-# Tabula 1. --- 3.
+# [Tabula 1. --- 3.](https://cdn.solaranamnesis.com/Menestrier/19.png)
 
 [GREEK]. _Ephesiorum_ [GREEK] _Eucriti_. Nomen Græcum, quod diversum in diversis nummis Ephesiorum legitur, sine dubio, eius est, qui summo cum honore, Dianæ templo, sacrisque præerat; siue ille Asiarches, (ut quidam existimant) siue potius Grammateus fuerit; utriusque enim mentio extat in actis Apostolorum cap. 19. ubi de huius templi, numinisque cultu, ac veneratione agitur. Nam scribæ siue Grammateos magna isthic conspicitur auctoritas, in reprimendo populi impetu, et seditione, religionis causâ, exorta, sedanda. Apuleius quoque l. 11. inter Isiacos Sacerdotes, unum præcipue Grammatea dictum commemorat. Ad hæc in nummis antiquis Grammateos tanquam præcipui Magistratus nomen legitur; Asiarcham verò non Prouiuciæ Præfecturam, sed præcipui Sacerdotij munus gessisse, eruditè admodum summi viri, et antiquitatis universæ peritissimi Antonius Augustinus ad Modestinum de Excusat; et Jacobus Cuiacius ad l. 1. responsorum Papiniani iam pridem docuerunt; præerat siquidem Asiæ Communibus Sacris, Ludis, ac publicis Conuentibus. Nummos verò, nec dum editos ab alijs, quò rariores, eo libentius hisce notis atteximus ex Gotifrediando Museo, nunc Augustæ Christinæ Reginæ.
 
@@ -534,31 +534,31 @@ Nummus M. Aurelij [GREEK]. _Sub Euaresto Grummateo Trallianorum._ Asiarcham aute
 
 Et nummus Bassiani Antonini [GREEK] _L. Ael. Pigres Asiarcha 3 posuit Laodicensium Neocororum._
 
-# Tabula 1. --- 4.
+# [Tabula 1. --- 4.](https://cdn.solaranamnesis.com/Menestrier/19.png)
 
 Caput laureatum, alatum Victoriæ est, sin malis Mercurij, et Apollinis unitatem, et connexionem, in ipso exprimi. Horum numinum communem aram, in templo Jovis Olympij fuisse tradit Pausanias, ac de Mercurio Sole plura docet Macrobius, et ex eo, alijsque Aleander. Tridentis, et Apis notæ indicant nummum ipsum cusum in aliqua Siciliæ, aut mari adiacenti civitate: quòd enim fit in marinis locis præstantius mel esse Plinius observat, et infrà patebit ex alijs nummis Apis emblemate decoratis, ad indicandam mellifluam, felicemque regionis ubertatem. In adversa nummi parte quadriga impressa est, cum Victoria, et litteris: L. JULI. BRUSI, de quo consule Fuluvium Ursinum.
 
-# Tabula 1. --- 5.
+# [Tabula 1. --- 5.](https://cdn.solaranamnesis.com/Menestrier/19.png)
 
 Romæ caput galctum, cum nota 10 quæ denarij nota est: exadverso Apis, de qua in antecedenti nummo. Biga, et quadriga celebritatem ludorum designat: unde bigati, et quadrigati.
 
-# Tabula 1. --- 6.
+# [Tabula 1. --- 6.](https://cdn.solaranamnesis.com/Menestrier/19.png)
 
 Apollinis caput laureatum, cum Apis, ac tridentis nota, ut in 4 superiori nummo extra urbem cuso. Adiecta est littera K singularis, quemadmodum nummi alij, dupplici, vel unica littera signati reperiuntur, ut [GREEK], per unicum K adnotatur. In altero huius denarij latere P. CREPUSI. IIIIXX. inscriptum est, quem Crepusium Triumvirum monetæ eundendæ fuisse Ursinus autumat. Eques hastatus victor Celete, siue desultorio equo videtur, siuè Crepusiorum aliquis Equestri Statua donatus, ex eiusdem Ursini sententia.
 
-# Tabula 2. --- 1.
+# [Tabula 2. --- 1.](https://cdn.solaranamnesis.com/Menestrier/20.png)
 
 Caput caprina pelle velatum Junonem Sospitam præfert, quæ Lanuuij colebatur: de ipsa Ovidius l. 6. fast. et Cic. pro Murena, et lib. 1. de leg. _Tam hercle_ (inquit) _quam tibi illam nostram sospitam, quam tu nunquam, ne in somnis quidem vides, nisi cum pelle caprina, cum hasta, cum scutulo, cum calceolis repandis._ Pegasus, qui in altero latere impressus est, Syracusis, nummum fuisse cusum demonstrat; cuius urbis Pegasus fuit insigne, quemadmodum Apes in Syracusijs, alijsque Sicularum Urbium, nummis exhibentur. L. PAPI. _Lucius Papius_ Triumuir fuit monetalis, qui ut Papiam gentem Lanuuio oriundam indicaret, Lanuuinæ Junonis simulacrum in denarijs expressit.
 
-# Tabula 2. --- 2.
+# [Tabula 2. --- 2.](https://cdn.solaranamnesis.com/Menestrier/20.png)
 
 [GREEK]. _Neapolis._ Bos humano ore conspicuus Hebo est Neapolitanæ præcipuum, aliarumque Campaniæ, et Siciliæ Urbium tutelare numen: de quo Macrobius: Apollinem, Liberumque unum, eundemque Deum esse probans: _Item liberi patris simulacra partim puerili ætate, partim iuuenili fingunt. Præterea barbatà specie, senili quoque, ut Græci eius, quem Bacchapæam, item quem Brissæa, appellant, et ut in Campania Neapolitani celebrant Hebona cognominantes._ Eiusdem numinis ratio, et figura, promissa barba, ad radiorum similitudinem, virtutem Solis in terrena demonstrat. Victoria quæ super Hebonis caput coronam præfert, Ludorum Quinquennalium celebritatem appingit, de quibus Strabo l. 5. Neapolim ipsam describens. _Hoc tempore sacrum Quinquennale certamen, Musicum, et Gymnicum, per aliquot dies agitur, ludis Græcorum nobilissimis æmulum._ Apis Campani mellis est index; Campania etenim, ob rosarum, florumque præstantiam præcipuè commendatur. Muliebre caput exaduerso impressum Cererem, seu Dianam representat, cum in alijs nummis similibus legatur APT. _Artemis_, quæ Diana est Lucina, ut conijcere licet ex pusilla imagine, retro facem præferente.
 
-# Tabula 2. --- 3.
+# [Tabula 2. --- 3.](https://cdn.solaranamnesis.com/Menestrier/20.png)
 
 [GREEK]. _Epesiorum Scopi_: in auverso latere [GREEK]. _Cerificantes orientalis ad Palurin_, quem siue montem, siue flumen esse credi potest, sed felicioribus ingenijs divinandi locum relinquimus.
 
-# Tabula 2. --- 4.
+# [Tabula 2. --- 4.](https://cdn.solaranamnesis.com/Menestrier/20.png)
 
 Apis ab uno, ab alio latere Formicæ binæ: nummus est, siue tessera plumbea sine literis, sedulitatis, et industrie symbolum continet Apem, et Formicam, quo etiam ipsæ sacræ literæ utuntur, ut Virgilium Juvenalem, aliosque transeam, Phocilides.
 
@@ -578,7 +578,7 @@ _Floribus efficiens, bene olentia cerea tecta._
 
 Sanctus Paulinus ep. 30. _Quantum de rure ad eruditione animæ trahi possit, ipsa rerum opifex Sapientia docet, cum sectatores suos ad Formicam, et Apem mittat, quæ utraque ruris animalia sunt: illa de frugibus vitæ prouida, et ista de floribus mellis operaria._
 
-# Tabula 2. --- 5.
+# [Tabula 2. --- 5.](https://cdn.solaranamnesis.com/Menestrier/20.png)
 
 [GREEK] _Ephesiorum._ [GREEK] _Demetrius._ Palma arbor, in hoc alijsque Ephesijs nummis signata, Latonæ partum, ac Dianæ natale testatur, ut præter Homerum, Theognis poëta Latonam parturientem Apollinem, et Dianam, palmam manibus fuisse complexam canit. Erat apud Ephesum lucus Ortygia, ubi Latona partu gravida Dianam edidit; Apollinem tamen in Delo natum canit Homerus hym. in Apol.
 
@@ -590,23 +590,23 @@ _Juxta Palmam._
 
 Pausanias l. 7. cap. 9. Palmas in Ionia nasci affirmat, Ionumque regionem cæli clementia frui, quod idem colligitur etiam ex Strabone l. 14. et ex Dionysio Periegete. Apud Franciscum Gottiftedum V. C. Extat Gordiani nummus, cum Diana Ephesia in naui, cuius prore Imperator insistens, coronam eius capiti imponit cum epigraphe ab uno latere [GREEK]. _Imperator Cæsar Marcus Antonius Gordianus_ ab alio [GREEK]. _Ephessorum, et Alexandrinorum concordia._ Ex quo posset conijci Palmam Alexaudriæ symbolum esse, cum Dianæ Ephesiæ simulacrum tot hieroglyphicis insigne ab Isiacis Hierophantis ex Aegypto in Ioniam traductum videatur.
 
-# Tabula 2. --- 6.
+# [Tabula 2. --- 6.](https://cdn.solaranamnesis.com/Menestrier/20.png)
 
 [GREEK]. _Marcus Opelius Antoninus Diadumenianus Cesar_ [GREEK]. _Ephesiorum._ Alter nummus, in honorem patris Macrini, ab Ephesijs fuit cusus, cum literis [GREEK]. _Ephesiorum Principum Asiæ_, ob aliquod beneficium in Ephesios ab Imperatore collatum.
 
-# Tabula 3. --- 1.
+# [Tabula 3. --- 1.](https://cdn.solaranamnesis.com/Menestrier/21.png)
 
 Caput Lysimachi diademate, atque arietinis cornibus exornatum, quæ Regum Macedonum erant insignia, ad imitationem Alexandri Magni, qui Jovis Ammonis filius haberi, et cognominari voluit. In aversa parte nummi appicta est, imago Palladis victricis, cum literis [GREEK]. _Regis Lysimachi Lysimachensium_, in memoriam Regis ipsius Urbis conditoris. Fuit Lysimachia celebris civitas, in Thraciæ Cherronensi faucibus.
 
-# Tabula 3. --- 2.
+# [Tabula 3. --- 2.](https://cdn.solaranamnesis.com/Menestrier/21.png)
 
 Caput laurea redimitum Phileteri est, ludrico certamine victoris. In aversa parte inscriptum est: [GREEK] _Phileteri._ Hic Eunucus Lysimachi, eiusdem thesauris, Pergamoque urbe validissima potitus, Attalicorum Regum fuit auctor, ut fusè narrat Strabo. Pallas victrix coronam præfert, quemadmodum in antecedenti nummo, et Lysimachiæ cusum denarium ostenditur, ut ex nota M. que in tres literas dividitur [GREEK] _Lysimachensium._
 
-# Tabula 3. --- 3.
+# [Tabula 3. --- 3.](https://cdn.solaranamnesis.com/Menestrier/21.png)
 
 [GREEK] _Arcadum populus_ Caput laureatum Lycei Jovis est simulacrum: Arcades enim ab Jove genus ducere, ipsumque in Lyceo monte educatum asserebant. Aquila Jovis aliger est, infra quam Apis cernitur mellifluæ regionis argumentum. Cusus fuit hic nummus ab Arcadum populis, fortasse Megalopoli, sic enim vocabant magnam Urbem, in quam coierant aliæ Urbes Arcadiæ.
 
-# Tabula 3. --- 4.
+# [Tabula 3. --- 4.](https://cdn.solaranamnesis.com/Menestrier/21.png)
 
 [GREEK] _Brutiorum._ Jupiter hastæ innixus pedem super columnæ epistylium tenet: ab alio latere, caput Junonis apparet, cum Apis tessera in feracissimo regionis agro. Juno autem hæc, sine dubio, Lacinia est, cuius templum celebre, propè Cotronem
 
