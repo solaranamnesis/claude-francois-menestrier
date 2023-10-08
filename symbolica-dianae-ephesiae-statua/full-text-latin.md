@@ -799,6 +799,8 @@ _Sit fatum quodcunque velis._
 
 Quarè Proserpinam habuisse communem ædem cum Parcis, ac matre Cerere in Atticis scribit Pausanias; ideò fortè Dea Cybeles, etiam Proserpina fuit cognominata, quòd Physici, teste Macrobio inferius hemispherium terræ Proserpinam vocauerunt.
 
+# [Figura 19.](https://cdn.solaranamnesis.com/Menestrier/27.png)
+
 Post Colum visitur Caduceum, quo aër designatur, et Mercurius; nam cum euis sidus velocissimum sit, ideò hic Deus alatus fingebatur, ipsumque
 
 ...
