@@ -801,6 +801,59 @@ Quarè Proserpinam habuisse communem ædem cum Parcis, ac matre Cerere in Attici
 
 # [Figura 19.](https://cdn.solaranamnesis.com/Menestrier/27.png)
 
-Post Colum visitur Caduceum, quo aër designatur, et Mercurius; nam cum euis sidus velocissimum sit, ideò hic Deus alatus fingebatur, ipsumque
+Post Colum visitur Caduceum, quo aër designatur, et Mercurius; nam cum euis sidus velocissimum sit, ideò hic Deus alatus fingebatur, ipsumque per aëra volitare, atque ire, et redire ad superûm, Inferorumque domus putabant. Cum verò humectans, et calidus aër sit; calore igni, et humore aquæ consociatur; quæ duo Blementorum, Naturæ que dissonas qualitates, ut placet in Timeo Platoni, perfectionem huius mundanæ molis insolubilem conciliant atque deuinciunt. Caduceum quoquè benè jungitur stamini, et colo humanæ vitæ; pertinet enim ad genituram hominum, teste eodem Macrobio: _Argumentum Caducei ad genituram quoquè hominum, quæ Genesis appellatur, Aegyptij portendunt._
 
-...
+Flagellum præterea, quod Syria Dea pro sceptro manu gerit, usitatissimum est in Aegyptijs Deorum simulacris, ipsamque depulsare mala, atque adversantibus terrorem incutere indicat. Erant porrò aliqui Dij propitiatores, ac defensores [GREEK], atque Averrunci noncupati, ijsquè Typhoniam vim neque resistere, neque noxam inferre posse arbitrabantur.
+
+De Leonibus Cybeles, qui Deam concomitantur, nota res est apud Ovidium in Fastis, Hippomenem, atque Atalantam ipsius irâ Deæ in has feras conversas describentem. Referunt alij fabulam ad rationes naturales, et præcipuè Macrobius sæpè à nobis allatus in Saturnalibus: _Quis enim ambigut, Matrem Deûm terram haberi? Hæc Dea Leonibus vebitur validis impetu, atque firuore animalibus; quæ natura cæliest, cuius ambitu aër continetur, qui vehit terram._ Aliam affert causam Lucretius, adiunctos asserens bijuges Leones currui ipsius Deæ ob emollitam hominum feritatem:
+
+_Adiunxere feras, quia quamuis efferra proles,_  
+_Officijs debet molliri victa parentum._
+
+Cui assentitur Ovidius in Fastis:
+
+_... feritas mollita per illam_  
+_Creditur: id curru testificata suo est._
+
+Placuit tamen alijs, Leones mansuetos Matri Magnæ adiunctos, ut indicarent, nullum esse terræ genus tàm asperum, atque ferum, quod non subigi, colique possit. De qua re plura Menetreius in Hierogrammatismo Leonum. Nostrum verò simulacrum non curru à Leonibus vectam Deam repræsentat, sed quod rarius est, ipsam insidentem montano saxo, ijsdem feris ad eius pedes, atque eius lateri adhærentibus. Cybele porrò à montibus, in quibus erat culta, diversa nomina sumebat, dictaque fuit Berecynthia, Idea, et Dindymene à Cybele, Berecyntho, Ida, et Dindymo, quin etiam Montana Petrosa, Montigena, et Agdiste fuit cognominata, quòd in finibus Phrygiæ ex monte, quem indigene Agdum appellant, divinitus fuerit informata teste Arnobio.
+
+Rosæ in pectoris zona, atque in clamyde intextæ, Matris Deûm, seù Telluris florenti Vere primitias ostentant. Quare in eius festo, cum Dea per Urbes vectaretur, ante ipsius simulacrum Rosæ spargebantur, juxtà eiusdem Lucretij descriptionem.
+
+_Ergo cùm primùm magnas inuecta per Urbeis_  
+_Munificat tacitå mortaleis muta salute:_  
+_Aere, atque argento sternunt iter omne viarum,_  
+_Largificå stipe ditantes, ninguntque rosarum_  
+_Floribus, umbrantes Matrem, comitumque cateruas._
+
+Quod idem solemne fuisse in Isidis, siue ipsius Deûm Matris pompâ refert Apuleius, in quâ Sacerdos ante Deæ simulacrum, coronam amænis contextam rosis gerebat, quæ Lucium ferinâ specie exuerunt. Sed præclarius argumentum præbent Apes, quæ in extrema clamydis ora, rosis intermixtæ limbum vicissim pingunt, et venustè quidem, nam et ipsæ florilegæ rosas amant, ac in hortis cum thymo, et violis, ad mellis munera depascunt. Quin et Apes Matri Deûm ità sunt addictæ, ut Cybeleio æris tinnitu mulceantur, ac abeuntes revocentur, ut describit Virgilius:
+
+_Tinnituque cie, et Matris quate Cymbala circum,_  
+_Ipse confident medicatis sedibus ipsæ_  
+_Intima more suo se se in cunabula condent._
+
+Simul ergo Apes, et rosæ Deæ Syriæ, et Ephesiæ Multimammiæ dicabantur, et utriusque simulacrum exornant intermixtæ; de quibus consule Menetreium in ipsarum Hierogrammatismo.
+
+De corporis cultu, atque indumentis, quibus hoc Deæ simulacrum insignitur, Cydari nempè, et pallio, ac fascia fimbriata, quæ è collo utrinq; dependet, an ab his emanarint nostrorum Antistitum vestes, Mitra, Planeta, seu Pluviale, ac Stola, videant peritiores. Velo, quod è collo dependet, ac Deæ caput obnubit, noctis umbræ indicantur, quarum Diana est moderatrix, Noctiuaga, et Noctiluca cognominata.
+
+Restat ut reliqua symbola, quæ dextero brachio insculpta hærent, paucis perquiramus. Quid porrò Arcus, Pharetra, atque ignita fax? Non ne his congruunt illa superiùs allata verba Martiani Capelle de Lunari globo loquentis? _In eo Sistra Niliaca, Eleusinaq; lampas, Arcus Dictynnæ, tympanaq; Cybeles._ Quibus verbis cum Luna coniunguntur Isis, Ceres, Diana, ac Cybele, nisi malis pharetram, Arcum, et facem ad ipsam tantùm Dianam pertinere, eamdem Lucinam, et Venatricem nuncupatam.
+
+Ad Cupidinem quoquè, et Venerem hæc tria spectare, non sine ratione quis dicat ad significandam Amoris eiusque Matris insitam vim, quæ cuncta movet in omnibus animantibus, ac rebus naturalibus procreandis, juxta Lucretium in principio operis sui de Rerum Natura, qui sic Venerem inuocat, Amoris flammam pectoribus incutientem.
+
+_Denique per Maria, ac Monteis, fluviosque rapaceis,_  
+_Frondiferasque domos auium, camposque virenteis,_  
+_Omnibus incutiens blandum per pectora amorem,_  
+_Efficis ut cupidè generatim sæcla propagent._
+
+Faci proxima harpago, siue uncus appictus est ad denotandam rerum naturalium connexionem, et seriem, nisi malis Gnomonem esse, et regulam ipsarum rerum in hoc mundo concinno ordine dispositarum. Vides inde humero, brachioque, et manui ipsius Deæ hærentia animalia, quæ in terra, atqu in aëre nascuntur: Aprum Martis, Leonem Solis, ac si rectè conijcimus, Coruum Apollinis, Columbam Veneris; hisque subiacentem. Scarabæum consuetum apud Aegyptios Solis symbolum, et amuletum. Inter verò Reptilia in dextera manu, ac digitis conspicitur Lacertus Veris, et redeuntis anni index, item Cochlea, et Papilio: illa ex putri in vitam educta; hæc ex semine perpetuò renascens, immortalitatis, vitæque resurgentis typus. In volâ dexteræ aspice pomum ubertatis, ab ipsa proueniens Deæ fecunditate. Manus verò sic extensa, atque aperta est ad maiestatem, et beneficentiam, supra quam fulmen extremis digitis imminens, nil aliud significare videtur quàm supremi Numinis prouidentiam, ac divinitatem, cuius utriusq; typus est fulmen, ad regimen huius mundanæ molis.
+
+Templum denique cum turrita coronâ in capite eminens, illud esse censemus donarijs, sacris, opibus, et magnificentia Hierapoli celeberrimum, in quo Dea veneratione summâ colebatur. De eius multiplici specie, ac nominibus intellexisse videtur Apuleius, cum per somnium ità loquens se Lucio ipsa palâm exhibuit: _Cuius Numen unicum multiformi specie, ritu vario, nomine multijugo totus veneratur Orbis. Inde primigeni Phryges Pessinunti eam nominant Deûm Matrem, hinc Autochthones Attici Cecropiam Minerva, illinc fluctuantes Cyprij Paphiam Venerem; Cretes saggittiferi Dictynnam Dianam; Siculi trilingues Stygiam Proserpinam; Eleusini vetustam Deam Cererem; Junonem alij, alij Bellonam, alij Hecaten, Rhamnusiam aij, etc._
+
+His ad explicationem huius mystici simulacri pro nostra tenuitate expositis, si quis detrahat Ligorio fidem in antiquis monumentis, quasi mendacio operam nostram eluserit, sciat is nos de Ligorio unâ cum Clariss. Spanhemio ità sentire, ut illum in vetustis reliquijs colligendis, delineandis, describendis summâ laude dignum existimemus. Siquidem quadraginta, et plura volumina digessit, quæ in Taurinensi Bibliothecâ, et alibi adservantur. Quòd si in tanta rerum mole aliqua minùs fide digna reperiantur, cuncta abijcere, atque euertere magnum Litterarum, ac Rei antiquariæ foret detrimentum. In Simulacro ipso adeò omnia respondent mysteria, ac symbola rebus naturalibus, fabulis, et ipsi Philosophiæ consona, ut puram redoleant antiquitatem vel suprà ipsius Ligorij eruditionem. Quare, ne quid desit, aut desideretur, eius interpretationem huic norstræ adijcimus.
+
+## Excerpta ex Pyrrhi Ligorij interpretatione Simulacrí Deæ Syriæ Italico sermone descriptâ.
+
+### D'Iside, et Matre Syria natura generante etc.
+
+_Alcuni Filosophi significarono in lei l'universale, il Cielo, et la Terra; fecero la figura sua con tutti i simboli delle ipse, che il ritratto di presente hà dimostrato, secondo quella statuetta antica di bronzo, che haueua il Sig. Virginio Ursino Conte dell' Anguillara, che nelle parti più alte nell' estremità ha figurato nella testa le cose del Cielo, la Mitra, et un altra fabrica Episcopale, et tutelare di ogni suo gouerno. Nella cima della mano destra tiene il fulmiue per significato dell' aere, et delli fulmini che intuonano strepito samente nell' aere. Intorno il mantello hà li Segni Celesti de' Planeti, d'onde Planeta è detto il militare Piuiale de' nostri Christiani Episcopi, che hanno, come militari Pastori il gouerno delle' sue gregi, secondo la celeste regione, et fermissima fede. Poiche questo habito è stato ritratto dalla Dea Syria, et conservato dalla Santa Chiesa, perche in esso si riconosce quell' Altissimo Dio, che hà fatto la Natura._
+
+_In essa sono la Luna, il Sole, le Stelle, le celesti torri, che circondano la furtezza del celesto reggimento, oue sono i simboli de' Planeti. Nella mano destra, come principale nelle potentie, che gli Astronomi hanno forniato ciascun Planeta, il fulmine di Gioue, la facella del Sole, il carcasso, e l'arco della Luna, la Colomba di Venere, la Falce di Saturno, il Coruo di Apollo, il Cinghiale di Marte. Nell' altre diversità degli effetti delle Stagioni, et cose terrestri ui sono le Farfalle, le Lucerte, li Pomi, la Limaca, et per tutto il manto li Fiori. Nella mano sinistra appoggiata su'l Crepitabulo, il Timpano per li Venti, il Sistro per le Stagioni, li Sonagli per lo strepito dell' aere, il Caduceo di Mercurio per li contrasti, per la pace, per lo parlare, per le congiuntioni indissoluili, per lo metro delle cose che passano per lo Cielo, et per l'Aria. Il fuso delle Parche lo stame della vita, li Pesci per lo Mare, i Leoni per gli Animali, et ferocità di essi, et per la potenza del Sole. Il solio oue siede è sopra un monte per li Monti, et Olimpi della grandezza terrena. Li Segni che hà la Dea intorno il Planeta, ò Mantello, che è figura del coperto, ò padiglione celeste, che copre ogni cosa aerea, e terrena. Alcuni hanno fatto ad essa Matre Syria le Parche istesse per sua cintura, et le Hore intorno il petto, et altri una collana di mammelle, et secondo scriue Luciano, hauer veduto la Matre Syria scolpita in significato di tutti gl' Iddij, e tutte le Iddee, le Muse et celesti Planeti, la Vittoria, la Fortuna, le Parche, il Sole, la Luna particolarmente, et esser Pallade, Marte, Bellona, Venere, di cui hà il cesto di Rose etc._
