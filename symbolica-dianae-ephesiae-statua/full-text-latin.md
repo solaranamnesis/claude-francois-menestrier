@@ -34,6 +34,14 @@ Aegyptiorum genti antiquissimæ, externæque eruditionis contemptrici moris fuit
 
 Portentosum planè atque ab omni veterum Deorum cultu, et ornatu alienum hoc simulacrum videtur. Sed qui penitùs omnia eius symbola examinauerit, varia sub ijs mysteria reconditæ illius priscorum, Aegyptiorum sapientiæ latere deprehenderet: quin etiam sub istis diuersorum animantium figuris quibus Diana decoratur, aliqua Pythagoreorum placita et dogmata contineri animaduerte: qui Lunam, circumquaque ad inilar terra, quam nos incolimus, erandioribus habitari animalibus, et pulchrioribus consitam plantis arbitrati sunt. Et hanc quidem ipsorum doctrinam, haud temerè referamus ad varia hæc symbola, quibus Diana nostra (quæ ipsissima Luna est) exornatur, cuius totum fermè corpus non modò diuersis animalium, verùm etiam fructuum generibus vestitum conspicimus.
 
+[Figura 1.](https://cdn.solaranamnesis.com/Menestrier/1.png)
+
+[Figura 2.](https://cdn.solaranamnesis.com/Menestrier/2.png)
+
+[Figura 3.](https://cdn.solaranamnesis.com/Menestrier/3.png)
+
+[Figura 4.](https://cdn.solaranamnesis.com/Menestrier/4.png)
+
 # Dianæ Ephesiæ varia Nomina.
 
 Communi et recepto indigitamento hæc Symbolica figura [GREEK], id est, DIANA EPHESIORUM dicebatur, quamuìs sub hac effigie apud remotissimas etiam gentes coleretur. Certè Pausanias inter alios auctor est, varijs in locis Dianam Ephesiam summo in honore fuisse habitam. Nonnullis tamen alijs etiam titulis fuisse infignitam ex veterum monumentis obseruabis. Ac in primis Opin denominatam apud Macrobium Saturn. lib. 5. cap. 22. reperies. Is etenim ex Alexandro Aetolo refert, Ephesios dedicato augustissimo templo Dianæ celebrioribus Musarum alumnis præmia amplissima constituisse, ut in Deæ laudem carmina diversa componerent. In hisce peculiari encomio à quodam vate Opin dictam fuisse Dianam commemorat hoc versu:  
@@ -43,6 +51,8 @@ Verùm enimuerò præ cæteris præconijs, quibus decorabatur, acceptus illi fui
 Sed de Iside hoc adijciam: nusquam ceruos eius obsequio à priscis illis Aegyptijs destinatos fuisse. Id ex omnibus Aegyptiorum monumentis obseruare liquet, in quibus ceruos appictos nusquam reperies. Præterea Aristoteles hist. animal. lib. 8. cap. 28. et Plinius lib. 8. cap. 33. memoriæ prodiderunt, Africam primis illis seculis ceruos non tulisse: atqui de more rituquè priscæ illius gentis nulla animalia exotica dijs patrijs consecrabantur. Dianam verò hanc nostram ceruis tanquam individuis comitibus semper circumstipatam videmus. Mystica tamen hæc simulacri emblemata nobis ansam conijciendi abundè subministrare possunt, Ephesios Aegyptiorum disciplinas, et instituta præ oculis habuisse, dum tam varijs symbolis Dianæ statuam adornarunt. Verùm ut augustior patrij numinis maiestas redderetur, non solùm quæ præcipua erant Isidis attributa, sed etiam Magnæ Matris, seu Cybeles Phrygiæ muralem coronam, Cereris Eleusinæ boues et fruges, Dianæ Siculæ ceruos, et rosas mutuati, novum Naturæ numen sub Dianæ indigitamento composuerunt, unico simulacro omnium prædictarum virtutes, et proprietates coniungentes. Non enim varij sacrorum ritus, vel formæ deorum diuersæ apud priscos efficiebant, ut ipsa numina re differrent; quod multis rationibus Macrobius, Satur. lib. 2. Phurnutus, alijque Mythologi euincere contendunt, qui omnes Deos ad unicum Solis numen revocant. Apuleius quoque Isin, Deûm Matrem, Mineruam, Junonem, Dianam, Cererem, Venerem, Proserpinam, Hecaten unam eandemq; esse prædicat: diversis tamen nominibus celebratam, ac multiplici specie à varijs gentibus cultam. Quod et ex diversis argumentis in nostro hoc Dianæ signo expressis ostendere conabimur. Sed antequam rem ipsam aggrediar: duo antiqua Ephesiorum numismata propono, in quibus eadem prorsus effigie Diana Ephesia expressa visitur.
 
 In anteriori orbe primi nummi Traiani effigies, et huiusmodi est inscriptio: AYT. KAIC. TPAIAN. CEB. alter verò, quem tanquam succenturiatum testem adduxi, exhibet in antica parte, Marci Aurelij imaginem, cum his litteris: [GREEK] cuius delineandi potestatem mihi fecere Brutus et Franciscus Gotifredi fratres, unanimes in conquirendis, et asseruandis veteribus monumentis. Nonnulla etiam alia numismata eadem specie ab Ephesijs conflata, ab Huberto Goltzio, Guillelmo du Choul, Fuluio Ursino, Adolpho Occone, alijsque in lucem sunt edita. His breuiter de nominibus, dequè Dianæ forma præmissis, nunc ex qua materia simulacra ista Ephesij effinxerint despiciamus.
+
+[Figura 5.](https://cdn.solaranamnesis.com/Menestrier/5.png)
 
 # Statuæ Materies.
 
@@ -391,6 +401,14 @@ Ephesus, ut vult Stephanus, Ioniæ est urbs clarissima; Lydie, ut Herodotus: Asi
 
 ## Templum Dianæ Ephesiæ.
 
+[Figura 6.](https://cdn.solaranamnesis.com/Menestrier/6.png)
+
+[Figura 7.](https://cdn.solaranamnesis.com/Menestrier/7.png)
+
+[Figura 8.](https://cdn.solaranamnesis.com/Menestrier/8.png)
+
+[Figura 9.](https://cdn.solaranamnesis.com/Menestrier/9.png)
+
 _Dianæ Ephesiæ templum unicum est Deorum domicilium: quisquis enim spectauerit, credet permutatis inuicem locis mundum cælestem immortalium deorum in terras demigrasse. Nam Gigantes, vel Aloidæ cælum conscendere aggressi aggestis montibus non templum, sed Olympum struxere: ita ut labor inceptum, ars laborem audacia superet. Artifex enim dimoto solo, quod suberat, actisque in immensam profunditatem fossis fundamenta altioribus cuniculis iecit: ita ut montium lapicidinas operibus subterraneis exbauriret. Sed strato inconcussæ soliditatis firmamento, et præsupposito Atlante ad superincubituri operis pondera sustinenda, principio quidem crepidinem decem graduum extrinsecus posuit, quæ basis eleuatioris vice fungeretur._
 
 Reliqua deinde huius capitis perierunt, magno sanè damno: haberemus enim exactam totius structuræ descriptionem, qualem in cæteris expressit scriptor antiquissimus, qui ipsum templum haud dubiè viderat ante conflagrationem. Sed quod in Philone temporum iniuria nobis negauit, aliunde resarcire conabor. Ea propter ipsius Templi formam studiosorum oculis exhibere decreui, duplicis nummi beneficio: quorum unus ex metallo pulcherrimo et forma grandiuscula in Musæo Eminentissimi Cardinalis Francisci Barberini asservatur; alter verò ex schedis Jo. Jac. Chiflleti Patritij Bisuntini depromptus est.
@@ -414,6 +432,16 @@ Finis.
 # Lector.
 
 _Ne quid eorum, quæ ad religionem Ephesiæ Dianæ visa sunt pertinere, periret, Signa etiam atque Numismata, que ipsius Dianæ insignia non ineptè quis dixerit, excudenda curauimus. Tria Signa prima marmorea in ædibus Farnesiorum seruantur: quartum marmoreum apud Serennissimum Leopoldum Etruriæ Principem: alia duo marmorea apud Leonardum Augustinum Senensem: reliqua in gemmis Camilli Maximi Junioris, atque Leonardi Augustini: quæ sequuntur Numismata ex Ceimeliotheca Barberina promuntur._
+
+[Figura 10.](https://cdn.solaranamnesis.com/Menestrier/10.png)
+
+[Figura 11.](https://cdn.solaranamnesis.com/Menestrier/11.png)
+
+[Figura 12.](https://cdn.solaranamnesis.com/Menestrier/12.png)
+
+[Figura 13.](https://cdn.solaranamnesis.com/Menestrier/13.png)
+
+[Figura 14.](https://cdn.solaranamnesis.com/Menestrier/14.png)
 
 # Lucae Holstenii Epistola Ad Franciscum Cardinalem Barberinum
 
@@ -469,6 +497,10 @@ Hæc ad Dianæ Ephesiæ statuas, nummosque veteres illustrandos scripsi ut mutua
 
 Finis.
 
+[Figura 15.](https://cdn.solaranamnesis.com/Menestrier/15.png)
+
+[Figura 16.](https://cdn.solaranamnesis.com/Menestrier/16.png)
+
 # Jo. Petri Bellorii Notæ In Numismata
 
 ## Tum Ephesia, tum Aliarum Urbium Apibus Insignita.
@@ -477,7 +509,7 @@ Finis.
 
 #### Aspice dulcis Apis, Lyra dulcis in Astra locantur: Hæc cantu, illa favis, munus utrumque Deum.
 
-...
+[Figura 17.](https://cdn.solaranamnesis.com/Menestrier/17.png)
 
 # Apum Auspicia
 
