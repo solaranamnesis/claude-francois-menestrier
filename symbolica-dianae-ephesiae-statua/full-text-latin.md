@@ -765,11 +765,11 @@ _Ex Jou. Pontano._
 
 Ad huius operis absolutionem, et elegantiam consentaneum duximus, additis Dianæ Ephesiæ Templo, et sacris, attexere quoq; votiuam Lucernam 1 eidem dicatam à quodam Eutyche Miletopolitarum Stratego, quæ Lucerna in nostro Museo vetustatis luce inextincta refulget. Ansæ apicem habet recuruum in modum falcatæ Lunæ cum titulo: [GREEK] _Diana Ephesiorum Euthychis Alexandri Miletopolitarum._ Eutychem hunc Miletopolis Urbis Strategum fuisse indicat nummus Commodi 2 ab Erizzo vulgatus, qui ab uno latere exhibet Imperatoris caput cum litris: [GREEK]. _Imperator Cæsar Lucius Aurelius Commodus_; ab alio Mercurium saxo insidentem cum Caduceo; ijdem Eutychis nominibus, in Lucerna incisis, ac Strategi dignitatem referentibus: [GREEK] _Sub Stratego Eutiche Alexandri Miletopalitarum._ Sic vertendum sanè, haud quaquàm cum Erizzo ipso: [GREEK] _Felicis Alexandri._ In quem errorem fortè non incidisset accuratissimus Nummographus, si Strategi dignitas primoribus literis patuisset. Extat et alius eiusdem Urbis nummus mediocris magnitudinis, in honorem Gordiani Pij à Clarissimo Equite Patino editus 3. [GREEK]. _Imperator Cæsar Marcus Antoninus Gordianus_ Gordiani caput. In latere adverso Diana Venatrix conspicitur cum epigraphe [GREEK] _Sub Marco Traiano Aurelio Herme, seu Hermete Miletopolitarum_; ex quibus constat, huius Urbis studium, et cultum insignem fuisse in Dianam Ephesiam. Stephanus Miletopolim scribit Urbem esse inter Cyzicum, et Bithyniam, circa Rhyndacum fluvium, deque ipsa Strabo, et Plinius.
 
-# [Figura 18.](https://cdn.solaranamnesis.com/Menestrier/26.png)
-
 # Jo. Petri Bellorii Expositio
 
 ## Symbolici Deæ Syriæ Simulacri.
+
+# [Figura 18.](https://cdn.solaranamnesis.com/Menestrier/26.png)
 
 Apum argumentum vocat nos ad Syriæ Deæ, seu rerum Naturæ simulacru, quod ob oculos ponitur juxta Syrorum doctrinam, ac superstitionem; nosque eò libentiùs ipsum meditamur, quòd hæc Dea cognationem habet cum Ephesia Diana; utraque enim plurimis mysterijs, et symbolis spectabilis est, ac præcipuè Apum insignijs, quibus ambæ decorantur. Simulacrum ipsum ex aere ductum apud Virginium Ursinum Anguillaræ Comitem olim visebatur, eiusque imaginem ad magnitudinem, ac similitudinem, quæ habetur in Pyrrhi Ligorij Codicibus, in Bibliotheca Augustæ Reginæ Christinæ adservatis, desumpsimus. Titulus in basi legitur.
 
