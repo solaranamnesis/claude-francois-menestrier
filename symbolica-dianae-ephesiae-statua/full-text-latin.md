@@ -478,3 +478,136 @@ Finis.
 #### Aspice dulcis Apis, Lyra dulcis in Astra locantur: Hæc cantu, illa favis, munus utrumque Deum.
 
 ...
+
+# Apum Auspicia
+
+## Eminentiss. ac Reverendiss. Principi Francisco Barberino Cardinali.
+
+Apum auspicijs cæptum absoluendum est opus, Eminentissime Princeps, quibus regnantibus, Roma, atque Christianus orbis universus rores melleos, è cælo cadentes, divinum nectar excepit. Fabula est Prænestæ tuæ fortes, quondam melle nobilitatas: BARBERINAE APES dulcioribus mellificantes favis, nunc sanè nobilitant: fas erit tamen miraculum illud, inter vetera auspicia, ex Cicerone recensere: _eo loco ubi nunc fortunæ sita ædes est, mel ex olea fluxisse dicunt, Haruspicesque dixisse summa nobilitate illas sortes futuras_. Quid de Platonis, ac Pindari infantia? fama est quoque vagientis Jovis ore mellificasse Apes nutrices, regnique eius augures extitisse:
+
+_Dictæo Regem cæli pauere sub antro._
+
+Justinus de Hierone: _paruulum, et humanæ opis indigentem, Apes congesto circa jacentem melle, multis diebus aluere, ob quam rem responso Haruspicum admonitus pater, qui Regnum infanti portendi canebant, puerum recolligit, omnique fludio ad spem maiestatis, quæ promittebatur instituit._ Apes Antonini statuis insidentes eidem Imperatori futuro augures fuerunt. Capitolinus: _eius statuas in omni Hetruria examen Apum repleuit_: quare Artemidorus: _Apes insidentes capitibus significant futuros duces atque Imperatores_. Dionysio quoque examen Apum considens in equi juba, Imperij, fuit præsagium. Aelianus: _Cum apprebenderet eius jubam ad ascendendum, Apum examen continuò manum circundedisse, atque de his interroganti, respondisse Dionysio, Galeotas Monarchiam ea re præsignificari_. Apes _sedisse in castris Drusi Imperatoris_ memorat Plinius: _cum prosperrimè pugnatum apud Arbalonem est_ Julianus Episcopus de Uvamba in Hispaniæ Rege: _Hic regio iam cultu conspicuus ante altare divinum consistens, ex more fidem populis tradidit, deinde curuatis genibus, oleum benedictionis, per sacri Quirici Pontisicis manus, vertici eius refunditur: et benedictionis copia exibetur; ubi statim signum hoc salutis enituit: namque mox è vertice ipso, uti oleum ipsum perfusum fuerat, evaporatio quædam fumo similis, in modum columnæ sese erexit, et ex capite ipso Apis visa est prosilijsse, et aeris alta petijsse, quæ, utique signum fuit secturæ felicitatis._ et Rodericus Toletanus: _Visa est Apis deius capite prosilijsse, et ad cælos continuò euolasse: et qui diligentius cogitabant, intelligebant, per eum Gothorum regnum feliciter exaltandum, et in pacis dulcedine gubernandum._ His Childerici Francorum Regis regias Apes subnectam, quas desumpsimus ex Jo. Jacobi Chifletij eruditissimis commentarijs in eiusdem Regis Anastasim, siuè Thesaurum sepulcralem Tornaci Neruiorum effossum. Inter cimeliorum reliquias, Apes supra tercentæ inuentæ sunt, quondam Francorum Regum insignia, postea in Lilia (quæ nunc sunt) commutatæ. Multa ad probandum Chitletius adducit argumenta: Apes aureæ, aurea Lilia: cælestia Lilia, cælestes Apes: Lilia in æthere pinguntur, Apum campus æther: Lilium Regium flos, Apes Regiæ. Quemadmodum ergo regalia Childerici antiquitus aureæ insignibant Apes, expansis alis, veluti ab æthere deductæ, sic aurea modò in æthere ipso splendent Lilia, Apes ipsas deciduas imitantia. Cæterum post Childericum Regem, symbolicas Apes primus palam usurpauit Ludovicus 12 Rex Francorum stirpe Valesius. Jo. Baptista Mantuanus de triumphali eius introitu in Ciuitatem Genuensem anno 1507 ità cecinit:
+
+_In medio Rex victor equo sublimis in alto_  
+_Murice conspicuus, rutilanti splendidus auro_  
+_Signabatur Apum sparsim toga tota figuris;_  
+_Cumque Apibus Regnator Apum fulgebat in ostro._
+
+Henricus 3 Rex Valesiorum postremus ijsdem Apum impressa typis, bina edidit numismata: alterum argenteum hoc præfert lemma PLEBIS AMOR. REGIS CUSTODIA: alterum aureum: REGE INCOLUMI MENS OMNIBUS UNA. Postremò Henricus 4 Rex Borboniorum primus anno 1608 aureum numisma eudit eum Apibus Regem suu stipantibus, et hoc symbolo AMORE NON TERRORE.
+
+Hinc cætera inter animantia, Apes tantum Regem suum summo studio, summaque veneratione prosequuntur: hinc _regias Imperatoribus futuris extruunt amplas, magnificas, separatasque domos_: Hinc _celsior regibus ipsis in fronte macula, quodam diademate candicans_: ut Plinius, et Virgilius diligentissimè speculantur:
+
+_Præterea Regem non sic Aegyptus, et ingens_  
+_Lydia, nec populi Parthorum, aut Medus Hydaspes,_  
+_Observant; Rege incolumi mens omnibus una est._
+
+Et ut Medus ille, Cyrum Apum Regi comparando: _mirificus eis amor erga principem._
+
+Nec tantùm Regna, et Imperia, verùm etiàm Heroas, et divinitatem portendi ab Apibus traditum est. Herodianus: _Onesilo contigit divinitas, eique sacrificia quot annis sunt institutas; propterea quod in eius defuncti caput Apes mel cogessissent._
+
+_His quidem signis, atque hæc exempla sequuti_  
+_Esse Apibus partem divinæ mentis, et haustus_  
+_Aetherios dixere._
+
+Sed iam in Hymetto, sacra litaui, Eminentissime Princeps, nunc Apes tuas, in Heliconijs Musarum collibus, omni genere doctrinæ virentibus, immortali tymo, ac rore, depastas colo; solemnemque tuum illum in literas, ac literatos, tutelarem genium veneror, quibus, et dulcissima mella instillas, et favos. Patere verò Apes ipsas, argumento, auspicioque regias, humili me, rudique stylo, complexum: patere, auspicibus ipsis, me nomini tuo vota nuncupasse, cui dudum obsequium omne meum, et cultum deuoui.
+
+Emin. Tuæ
+
+_Observantiss. humillimusq; seruus Jo. Petrus Bellorius.
+
+# Tabula 1. --- 1.
+
+Apis Dianæ symbolum. Exaduerso: [GREEK] _Ephesiorum_. Lyra Apollinem refert. Porrò hi salutares Dij ijsdem titulis, et pari veneratione colebantur; omniumque primi Ephesij (Deli fabula repudiata) Apollinem, ac Dianam apud se natos gloriabantur. Tacit. Ann. l. 3. _Primi omnium Ephesij adiere memorantes, non ut vulgus crederet, Dianam atque Apollinem Delo genitos, esse apud se Cencbrium amnem, lucum Ortygiam, ubi Latonam partu grauidam, et Oleæ quæ tum etiam maneat, adnixam edidisse ea numina_. Ephesijs præterea celebris cultus fuit Larissæi Apollinis, cuius templum, in ipsorum agro commemorat Strabo. Multiplex verò est ratio, qua Apis Ephesiæ Artemidi consecrabatur; namque illa virginitatem colit, rorem Lunæ ex floribus legit; atque Ephesinæ Cereri summoperè grata est, ut Menetreius adnotauit in Apis hierogrammatismo, et infra ex alijs Ephesiorum nummis, eodem hieroglyfico insignitis abundè patebit.
+
+# Tabula 1. --- 2.
+
+[GREEK]. _Ephesiorum._ Apis, ut in superiori nummo; exadauerso: [GREEK] _Menippus_, et Ceruus animal Dianæ venatrici dicatum: quare ipsa Dea Elaphiea Homero [GREEK], et Euripidi [GREEK], seu Ceruicida fuit cognominata. Libanius or. 32. asserit Ephesiorum moris fuisse Ceruam insculpere suis nummis, ob beneficia in ipsos à Diana collata. _Apud Ephesios etiam nummus Ceruam expressam fert, pro remuneratione magnorum Deæ beneficiorum._ De Palma arbore in sequentis tabulæ 5 nummo infra dicendum.
+
+# Tabula 1. --- 3.
+
+[GREEK]. _Ephesiorum_ [GREEK] _Eucriti_. Nomen Græcum, quod diversum in diversis nummis Ephesiorum legitur, sine dubio, eius est, qui summo cum honore, Dianæ templo, sacrisque præerat; siue ille Asiarches, (ut quidam existimant) siue potius Grammateus fuerit; utriusque enim mentio extat in actis Apostolorum cap. 19. ubi de huius templi, numinisque cultu, ac veneratione agitur. Nam scribæ siue Grammateos magna isthic conspicitur auctoritas, in reprimendo populi impetu, et seditione, religionis causâ, exorta, sedanda. Apuleius quoque l. 11. inter Isiacos Sacerdotes, unum præcipue Grammatea dictum commemorat. Ad hæc in nummis antiquis Grammateos tanquam præcipui Magistratus nomen legitur; Asiarcham verò non Prouiuciæ Præfecturam, sed præcipui Sacerdotij munus gessisse, eruditè admodum summi viri, et antiquitatis universæ peritissimi Antonius Augustinus ad Modestinum de Excusat; et Jacobus Cuiacius ad l. 1. responsorum Papiniani iam pridem docuerunt; præerat siquidem Asiæ Communibus Sacris, Ludis, ac publicis Conuentibus. Nummos verò, nec dum editos ab alijs, quò rariores, eo libentius hisce notis atteximus ex Gotifrediando Museo, nunc Augustæ Christinæ Reginæ.
+
+Nummus Triumvirorum [GREEK]. _Ephesiorum Archiereus Grammateus Glaucon Euthycrates._ Hic idem primus flamen, et Grammateus fuisse videtur.
+
+Nummus M. Aurelij [GREEK]. _Sub Euaresto Grummateo Trallianorum._ Asiarcham autem nummus Smyrnensium refert [GREEK]. _Sub Marco Aurelio Tertio Ascarcha Smyrnensium Principum Asiæ._
+
+Et nummus Bassiani Antonini [GREEK] _L. Ael. Pigres Asiarcha 3 posuit Laodicensium Neocororum._
+
+# Tabula 1. --- 4.
+
+Caput laureatum, alatum Victoriæ est, sin malis Mercurij, et Apollinis unitatem, et connexionem, in ipso exprimi. Horum numinum communem aram, in templo Jovis Olympij fuisse tradit Pausanias, ac de Mercurio Sole plura docet Macrobius, et ex eo, alijsque Aleander. Tridentis, et Apis notæ indicant nummum ipsum cusum in aliqua Siciliæ, aut mari adiacenti civitate: quòd enim fit in marinis locis præstantius mel esse Plinius observat, et infrà patebit ex alijs nummis Apis emblemate decoratis, ad indicandam mellifluam, felicemque regionis ubertatem. In adversa nummi parte quadriga impressa est, cum Victoria, et litteris: L. JULI. BRUSI, de quo consule Fuluvium Ursinum.
+
+# Tabula 1. --- 5.
+
+Romæ caput galctum, cum nota 10 quæ denarij nota est: exadverso Apis, de qua in antecedenti nummo. Biga, et quadriga celebritatem ludorum designat: unde bigati, et quadrigati.
+
+# Tabula 1. --- 6.
+
+Apollinis caput laureatum, cum Apis, ac tridentis nota, ut in 4 superiori nummo extra urbem cuso. Adiecta est littera K singularis, quemadmodum nummi alij, dupplici, vel unica littera signati reperiuntur, ut [GREEK], per unicum K adnotatur. In altero huius denarij latere P. CREPUSI. IIIIXX. inscriptum est, quem Crepusium Triumvirum monetæ eundendæ fuisse Ursinus autumat. Eques hastatus victor Celete, siue desultorio equo videtur, siuè Crepusiorum aliquis Equestri Statua donatus, ex eiusdem Ursini sententia.
+
+# Tabula 2. --- 1.
+
+Caput caprina pelle velatum Junonem Sospitam præfert, quæ Lanuuij colebatur: de ipsa Ovidius l. 6. fast. et Cic. pro Murena, et lib. 1. de leg. _Tam hercle_ (inquit) _quam tibi illam nostram sospitam, quam tu nunquam, ne in somnis quidem vides, nisi cum pelle caprina, cum hasta, cum scutulo, cum calceolis repandis._ Pegasus, qui in altero latere impressus est, Syracusis, nummum fuisse cusum demonstrat; cuius urbis Pegasus fuit insigne, quemadmodum Apes in Syracusijs, alijsque Sicularum Urbium, nummis exhibentur. L. PAPI. _Lucius Papius_ Triumuir fuit monetalis, qui ut Papiam gentem Lanuuio oriundam indicaret, Lanuuinæ Junonis simulacrum in denarijs expressit.
+
+# Tabula 2. --- 2.
+
+[GREEK]. _Neapolis._ Bos humano ore conspicuus Hebo est Neapolitanæ præcipuum, aliarumque Campaniæ, et Siciliæ Urbium tutelare numen: de quo Macrobius: Apollinem, Liberumque unum, eundemque Deum esse probans: _Item liberi patris simulacra partim puerili ætate, partim iuuenili fingunt. Præterea barbatà specie, senili quoque, ut Græci eius, quem Bacchapæam, item quem Brissæa, appellant, et ut in Campania Neapolitani celebrant Hebona cognominantes._ Eiusdem numinis ratio, et figura, promissa barba, ad radiorum similitudinem, virtutem Solis in terrena demonstrat. Victoria quæ super Hebonis caput coronam præfert, Ludorum Quinquennalium celebritatem appingit, de quibus Strabo l. 5. Neapolim ipsam describens. _Hoc tempore sacrum Quinquennale certamen, Musicum, et Gymnicum, per aliquot dies agitur, ludis Græcorum nobilissimis æmulum._ Apis Campani mellis est index; Campania etenim, ob rosarum, florumque præstantiam præcipuè commendatur. Muliebre caput exaduerso impressum Cererem, seu Dianam representat, cum in alijs nummis similibus legatur APT. _Artemis_, quæ Diana est Lucina, ut conijcere licet ex pusilla imagine, retro facem præferente.
+
+# Tabula 2. --- 3.
+
+[GREEK]. _Epesiorum Scopi_: in auverso latere [GREEK]. _Cerificantes orientalis ad Palurin_, quem siue montem, siue flumen esse credi potest, sed felicioribus ingenijs divinandi locum relinquimus.
+
+# Tabula 2. --- 4.
+
+Apis ab uno, ab alio latere Formicæ binæ: nummus est, siue tessera plumbea sine literis, sedulitatis, et industrie symbolum continet Apem, et Formicam, quo etiam ipsæ sacræ literæ utuntur, ut Virgilium Juvenalem, aliosque transeam, Phocilides.
+
+_Nil bene, si desit, geritur, sudorque, laborque,_
+_Non ipsisque Deis: virtus sudore iuuatur._  
+_Victum desertis antris, telluris egentes_  
+_Formicæ vadunt, redeuntque per inuia, quando_  
+_Desectæ campis, complent, nunc horrea fruges,_  
+_Hordea conuectant tritici, vel grana labore_  
+_Assiduo, sequiturque ferens sua dona ferentem._  
+_Inque hyemem victum proprium de messe reponunt._  
+_Impigrum, paruumque genus, inultique laboris_  
+_Tractat APIS studiosa suum, prudensque laborem,_  
+_Siue cauæ in petræ speleo, in arundinibusue,_  
+_Stat in ventre caui, jucundo Roboris antro_  
+_Floribus efficiens, bene olentia cerea tecta._
+
+Sanctus Paulinus ep. 30. _Quantum de rure ad eruditione animæ trahi possit, ipsa rerum opifex Sapientia docet, cum sectatores suos ad Formicam, et Apem mittat, quæ utraque ruris animalia sunt: illa de frugibus vitæ prouida, et ista de floribus mellis operaria._
+
+# Tabula 2. --- 5.
+
+[GREEK] _Ephesiorum._ [GREEK] _Demetrius._ Palma arbor, in hoc alijsque Ephesijs nummis signata, Latonæ partum, ac Dianæ natale testatur, ut præter Homerum, Theognis poëta Latonam parturientem Apollinem, et Dianam, palmam manibus fuisse complexam canit. Erat apud Ephesum lucus Ortygia, ubi Latona partu gravida Dianam edidit; Apollinem tamen in Delo natum canit Homerus hym. in Apol.
+
+_Salue ò beata Latona, quoniam peperisti præclaros liberos,_  
+_Apollinemque regem, et Dianam sagittis lætam:_  
+_Hanc quidem in Ortygia, illum verò aspera in Delo._  
+_Inclinata ad longum montem, et Cynthium collem_  
+_Juxta Palmam._
+
+Pausanias l. 7. cap. 9. Palmas in Ionia nasci affirmat, Ionumque regionem cæli clementia frui, quod idem colligitur etiam ex Strabone l. 14. et ex Dionysio Periegete. Apud Franciscum Gottiftedum V. C. Extat Gordiani nummus, cum Diana Ephesia in naui, cuius prore Imperator insistens, coronam eius capiti imponit cum epigraphe ab uno latere [GREEK]. _Imperator Cæsar Marcus Antonius Gordianus_ ab alio [GREEK]. _Ephessorum, et Alexandrinorum concordia._ Ex quo posset conijci Palmam Alexaudriæ symbolum esse, cum Dianæ Ephesiæ simulacrum tot hieroglyphicis insigne ab Isiacis Hierophantis ex Aegypto in Ioniam traductum videatur.
+
+# Tabula 2. --- 6.
+
+[GREEK]. _Marcus Opelius Antoninus Diadumenianus Cesar_ [GREEK]. _Ephesiorum._ Alter nummus, in honorem patris Macrini, ab Ephesijs fuit cusus, cum literis [GREEK]. _Ephesiorum Principum Asiæ_, ob aliquod beneficium in Ephesios ab Imperatore collatum.
+
+# Tabula 3. --- 1.
+
+Caput Lysimachi diademate, atque arietinis cornibus exornatum, quæ Regum Macedonum erant insignia, ad imitationem Alexandri Magni, qui Jovis Ammonis filius haberi, et cognominari voluit. In aversa parte nummi appicta est, imago Palladis victricis, cum literis [GREEK]. _Regis Lysimachi Lysimachensium_, in memoriam Regis ipsius Urbis conditoris. Fuit Lysimachia celebris civitas, in Thraciæ Cherronensi faucibus.
+
+# Tabula 3. --- 2.
+
+Caput laurea redimitum Phileteri est, ludrico certamine victoris. In aversa parte inscriptum est: [GREEK] _Phileteri._ Hic Eunucus Lysimachi, eiusdem thesauris, Pergamoque urbe validissima potitus, Attalicorum Regum fuit auctor, ut fusè narrat Strabo. Pallas victrix coronam præfert, quemadmodum in antecedenti nummo, et Lysimachiæ cusum denarium ostenditur, ut ex nota M. que in tres literas dividitur [GREEK] _Lysimachensium._
+
+# Tabula 3. --- 3.
+
+[GREEK] _Arcadum populus_ Caput laureatum Lycei Jovis est simulacrum: Arcades enim ab Jove genus ducere, ipsumque in Lyceo monte educatum asserebant. Aquila Jovis aliger est, infra quam Apis cernitur mellifluæ regionis argumentum. Cusus fuit hic nummus ab Arcadum populis, fortasse Megalopoli, sic enim vocabant magnam Urbem, in quam coierant aliæ Urbes Arcadiæ.
+
+# Tabula 3. --- 4.
+
+[GREEK] _Brutiorum._ Jupiter hastæ innixus pedem super columnæ epistylium tenet: ab alio latere, caput Junonis apparet, cum Apis tessera in feracissimo regionis agro. Juno autem hæc, sine dubio, Lacinia est, cuius templum celebre, propè Cotronem
+
+...
