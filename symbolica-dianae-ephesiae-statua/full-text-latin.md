@@ -640,6 +640,129 @@ Caput laurea redimitum Phileteri est, ludrico certamine victoris. In aversa part
 
 # [Tabula 3. --- 4.](https://cdn.solaranamnesis.com/Menestrier/20.png)
 
-[GREEK] _Brutiorum._ Jupiter hastæ innixus pedem super columnæ epistylium tenet: ab alio latere, caput Junonis apparet, cum Apis tessera in feracissimo regionis agro. Juno autem hæc, sine dubio, Lacinia est, cuius templum celebre, propè Cotronem
+[GREEK] _Brutiorum._ Jupiter hastæ innixus pedem super columnæ epistylium tenet: ab alio latere, caput Junonis apparet, cum Apis tessera in feracissimo regionis agro. Juno autem hæc, sine dubio, Lacinia est, cuius templum celebre, propè Cotronem extabat, sanctum omnibus circa populis, ut ait Livius lib. 24.
+
+# [Tabula 3. --- 5.](https://cdn.solaranamnesis.com/Menestrier/20.png)
+
+[GREEK]. Hic, et sequentes nummi [GREEK]. syllaba inscripti [GREEK] _Dyrrachium._ notant. Stephanus hanc Urbem Illyricam, antea Epidamnum dictam memorat ab Epidamno heroe. Strabo sie: _Epidamnus à Corcyrræis condita, quæ nunc à peninsula, cui imposita est, nomen Dyrrachij tenet._ Figura quadrata ad similitudinem aræ structa conspicitur [GREEK] nomen est Prætoris, sicuti [GREEK] _Alcæus_, alterius magistratum gerentem notat. Boves præcipue magnos fert Epirotica terra, quas Pyrricas vocant, ipsisque laudem maximam auctores tribuunt, quare Bos cum lactente Vitulo, impressa est in denario, ad indicandam quoque agri fertilitatem; ac pari emblemate Apis mellis copiam præbet, ut sequenti Tabula clarius patebit, ex aluearijs, in consimili numismate insculptis.
+
+# [Tabula 3. --- 6.](https://cdn.solaranamnesis.com/Menestrier/20.png)
+
+[GREEK]. _Ephesiorum_ [GREEK] _Armonij._ Ceruus, et Palma, de quibus in precedentibus.
+
+# [Tabula 4. --- 1.](https://cdn.solaranamnesis.com/Menestrier/21.png)
+
+[GREEK] _Delphi._ Semicapra in hoc nummo signata est, fortè quod hoc animal primum oraculum Delphicum manifestauerit ut notat Ludouicus Nonius, Diodori nixus auctoritate. Tradit etiam Pausanias in Phocicis Cleoneos pestilentia laborantes, oraculi monitu, sole primum Oriente, Caprum immolasse, ac sedata lue, æneum Caprum Apollini Delphico obtulisse. Pharetra Pythij Apollinis insigne est Pythonem iaculantis, in cuius honorem Peana instituta sunt. Apis Dianæ dicata est, ipsamque Ephesinam Deam designare videtur. Sed fortè Apum aliud extat argumentum; quippe proditum est ædiculam Delphici Apollinis ab Apibus è cera, et pinnulis fuisse compactam, ut Pausanias refert [GREEK] _Xenophanis_ Delphici Pretoris nomen est.
+
+# [Tabula 4. --- 2.](https://cdn.solaranamnesis.com/Menestrier/21.png)
+
+[GREEK] _Dyrrachium Obrimi._ De hac urbe in antecedenti Tabula dictum est. In aversa nummi facie, alucaria bina, totidemque Apum examina appicta sunt, quæ dubio procul, feracissimi, et ditissimi agri ubertatem indicant. Nam preter Bovem, et lactentem Vitulum in singulis Dyrrachij nummis; siue arista, siue botrus vue, siue aratrum impressum est. Præ cæteris verò Dyrrachiensis ager, mellis divitijs, et Apum gloria sese efferebat, ut in hoc, aliisque nummis, mellifluo stemmate decoratis.
+
+[GREEK] _Dyrrachium Daminus_, exadverso [GREEK] _Philo._ Spica, et Apis ubertatis symbola sunt, ut in antecedenti nummo adnotatum est.
+
+M. PLAETORIUS. CESTIUS. Sortis, siue Fortunæ simulacrum cum tessera SORS. Denarium hunc extra Urbem cusum suspicari possumus, quod Apis in co sit impressa. Non omittam felix mellis præsagium de Prænestinis sortibus, de quo Cicero l. 2. de Diu. _Eo loco ubi nunc fortunæ sita ædes est, mel ex olea fluxisse dicunt, Haruspicesque dixisse, summa nobilitate illas sortes futuras._ [GREEK] _Boetorum._ Apis, et Ceruus Ephesiæ Dianæ stemmata sunt. Eiusdem Deæ fanum in Boetia extitisse credibile est, ad eius quod Ephesi erat, exemplar constructum, ut in alijs permultis Græciæ civitatibus.
+
+[GREEK] _Delphorum_, ut in nummo ante adnotato.
+
+# [Tabula 5. --- 1.](https://cdn.solaranamnesis.com/Menestrier/22.png)
+
+[GREEK] _Eucriti._ Stat Ceruus ad Palmam, eodem nomine, quo tertius prime Tabulæ Ephesius nummus inscriptus est. Aversa facies Apem in laurea corona præfert, in Pythijs Ephesij victoris index, siue argumentum est solemnium ipsius Deæ sacrorum. Refert quippe Macrobius ex Alexandro Aetolo, quanto studio populus Ephesius, dedicato templo, Dianæ curauerit, præmijs propositis, ut qui tunc erant Poëtæ ingeniosissimi, in Deam carmina diversa componerent.
+
+# [Tabula 5. --- 2.](https://cdn.solaranamnesis.com/Menestrier/22.png)
+
+[GREEK] _Messanensium._ Lepus in plerisque Messanæ nummis impressus est, eiusdem Urbis animal insigne. Apis designat mellis præstantiam, qua plurimum Sicilia à Plinio commendatur. Rheda junctis Mulis acta, sacros ludos repræsentat, de quibus Pausanias. _Inter rhedarum, et carpentorum aurigas tantum interest, quod his alia sunt insignia, et masculos equos agitant: rhedam trahebant Muli jugales bini, inuento neque eleganti, neque prisco._ Agesias victor curru Mularum in Olymipijs à Pindaro luadatur.
+
+# [Tabula 5. --- 3.](https://cdn.solaranamnesis.com/Menestrier/22.png)
+
+[GREEK] _Ephesiorum Choriseus._
+
+# [Tabula 5. --- 4.](https://cdn.solaranamnesis.com/Menestrier/22.png)
+
+[GREEK] _Apta._ Quid hoc nominis sit, aut quo referendum, pro certo affirmare non ausim; si tamen loci, aut civitatis alicuius nomen existimemus, non aliam quam Aptam Juliam deinde cognominatam Coloniam, in Provincia Narbonensi, non longe supra Massiliam, et Aquas Sextias sitam reperio. Cuius suspicionis causam dupplicem habeo; primum quòd civitates illæ Græcæ originis, nummos quoque suos Græcis literis inscripserint; tum verò quod omnis illa Galliæ, et Hispaniæ ora Dianæ Ephesiæ cultum à Massiliensibus Ionum Asiaticorum colonis acceperint, ut Strabo non uno loco indicauit. De hac Apta Julia Colonia à Julio Cæsare deducta in Provincia: vide Jacobum Sponium in suo eruditissimo opere, cui titulus est _Miscellanea Eruditæ Antiquitatis_, duas afferens Inscriptiones eiusdem Colonie.
+
+# [Tabula 5. --- 5.](https://cdn.solaranamnesis.com/Menestrier/22.png)
+
+META. _Metapontinorum_ ex celebri magnæ Græciæ civitate Metaponto, quos genus ab Heraclidis duxisse hic nummus indicat: in cuius larere averso legitur [GREEK] _Heraclidarum_. Sita fuit in ubere regione melle, et frugibus nobili, ut Apis, et Arista indicant. Caput galeatum alatum imago est Metabi Herois, huius Urbis conditoris, de quo Stephanus, et alij ad principium Velleij Paterculi.
+
+# [Tabula 5. --- 6.](https://cdn.solaranamnesis.com/Menestrier/22.png)
+
+[GREEK] _Ephesiorum Nicolochi._
+
+# [Tabula 6. --- 1.](https://cdn.solaranamnesis.com/Menestrier/23.png)
+
+ME. _Megarensium_ interpretandum opinior cum Paruta, qui hunc nummum inter alios Megarensium Siculorum exhibuit, in quibus itidem Pallas insculpta cernitur; Megara enim à Megarensibus Atticæ regionis nomen, et originem duxit, in quorum arce (ut Pausanias refert) templum, et signum Mineruæ extitit, ipsiusque delubrum Deæ Victoriæ cognomento. Hæc verò Siciliensis civitas Hybla, aut Megara Hyblensia vocata, de qua ad sequentem nummum.
+
+# [Tabula 6. --- 2.](https://cdn.solaranamnesis.com/Menestrier/23.png)
+
+[GREEK] _Magnæ Hyblæ._ Celebris est Hyblæi mellis præstantia; magnæ verò cognominis causam sic refert Pausanias: _Fuere Hyblæ Siciliæ civitates duæ Gereatis cognomine una, altera maior. Retinent hac etiam nunc ætate prisca nomina, et earum altera in agro Catanensi planè deserta est: altera in ijsdem finibus, ad vici formam redacta. In hac fanum est Siculorum celebritate religiosam. Deæ quam Hybleam vocant, dicatum._ Deæ Hybleæ imago, sine dubio est, quæ in nummo conspicitur.
+
+# [Tabula 6. --- 3.](https://cdn.solaranamnesis.com/Menestrier/23.png)
+
+[GREEK] _Hieron._ Biga Pythiam, seu Olympiacam Hieronis designat victoriam, cuius etiam in 6 huius Tabulæ Syracusio nummo quadriga est nota. De curru Hieronis in Olympijs dedicato hæc memorat Pausanias: _Sunt etiam sua de Olympicis victorijs Hieronis monimenta Dinomenis filij, qui fratri Geloni in Syracusanorum tyrannide successit. Hæc dona non sunt ab Hierone missa, sed votum Deo persoluit Dinomenes Hieronis filius. Currus Onatæ Aeginetæ; Calamidis, qui utrinque sunt equi, et equestres pueri opera sunt._ Pindarus verò Hieronem in Pythijs curru victorem celebrat ode 1 et 2 Pyth. ut in 6 huius tabulæ nummo. Fuit Hieron. curru victor Pythiade 29. Caput aristis, et arundine coronatum Arethusam repræsentat, juxta quam Apis est mellifluæ Siciliæ, ac Syracusiij mellis index.
+
+# [Tabula 6. --- 4.](https://cdn.solaranamnesis.com/Menestrier/23.png)
+
+[GREEK]. _Ephesiorum_ [GREEK] _Gimesiana_: considerandum, num forte [GREEK] à Monte Gallesio, quem Epheso proximum Strabo commemorat.
+
+# [Tabula 6. --- 5.](https://cdn.solaranamnesis.com/Menestrier/23.png)
+
+[GREEK] _Tauromenitanorum_: Apollinis tripus: in aversa verò facie Apollinis Archagetæ caput laureatum: nam in alijs AP. legitur, cui Apis est appicta.
+
+# [Tabula 6. --- 6.](https://cdn.solaranamnesis.com/Menestrier/23.png)
+
+[GREEK] _Syracusanorum._ Arethusæ caput, ut in 3 huius Tabulæ nummo. Quadriga eiusdem Hieronis victoriam appingit in Syracusarum laudem, ut Pindarus Ode 2 Pyth. _O magnis constitute Urbibus Syracusæ bello potentis Martis delubrum, virorum, equorumque ferro gaudentium felices nutrices. Vobis à præclaris Thebis hoc epinicij adferens venio. Quadrigæ terram concutientis denunciationem, per quam Hieron victoriam obtinens, procul fulgentibus coronis Ortygiam reliquit, sedem fluvialis Dianæ, citra cuius opem, illas habenis varias non domuie admirandis manibus suis equas._
+
+# [Tabula 7.](https://cdn.solaranamnesis.com/Menestrier/24.png)
+
+[GREEK]. _Imperator Cæsar Augustus Antoninus._ Caput Antonini Pij laureatum. [GREEK]. _Syrorum._ Capita Marci Aurelij, et uxoris Faustinæ inuicem adversa cum arista intermedià: infra appicta est Apis, et astrum. Supra caput Faustinæ, legitur: KOP, idest KOPH _Core, præstanti forma puella_, quo epitheto cognominata fuit Proserpina, et in hoc nummo à Syris per adulationem, Faustina, pulchritudine magis, quàm pudicitia conspicua. Supra caput Marci Aurelij duæ aliæ leguntur literæ IP. idest IPOC Ionicè pro [GREEK]: _Sacer, Sanctus, Divinus,_ ob eius, ut inquit Capitolinus in omni vita, et à prima infantia sanctitatem. Cusus fuit hic nummus post Faustinæ cum Marco Aurelio nuptias à Syris, siue à Communi Syriæ; nam hæc regio Tetrapolis dicta, Strabone teste, quatuor ante alias habuit illustres Urbes à Seleuco conditas, Antiochiam, Seleuciam, Apameam, et Laodiceam, quæ propter ipsarum homoniam, et concordiam, Sorores appellabantur. Eodem sensu in nummo Traiani KOINON CYPIAC _Commune Syriæ_ ab ijsdem Syris cuso in honorem eiusdem Imperatoris cum capite Syriæ Deæ turrito. Hic perrarus Nummus mediæ magnitudinis in Reginæ Christinæ Augustæ Thesauro adservatur.
+
+Apis sub Faustinæ, et sub M. Aurelij capite Stella insculpta est, spicà inter utrumque ipsorum medià, ubertatis, et feracitatis eiusdem regionis indices. Syria enim celi, solique amænitate commendatur, celebrisque præ cunctis ros est Syriacus, quem Apes ad mella conficienda ex rosis, et floribus legunt. De spica vero, et Apes siue de Ape Cereris ministra vide supra in Apis Hierogrammatismo, quæ ex Pindaro, et Pausania refert Menetreius.
+
+Succedunt infra sex vetustæ Gemmæ anulares incisæ, Apum argumenta referentes, quæ in Barberina Dactyliotheca adservantur.
+
+# [Tabula 7. --- 1.](https://cdn.solaranamnesis.com/Menestrier/24.png)
+
+Prima gemma Corniola aratrum exhibet, duabus Apibus jugalibus, tertia Coloni instar, vomeri insistit ad regimen cum ferula. Quo emblemate continentur tria humanæ vitæ bona; scilicet Sapientis regimen, Telluris ad victum cultura, et labor, ac mellis dulcedo, et recreatio, quæ tria bona sequenti disticho exprimuntur in Poematibus Urbani 8 sapientissimi Pontificis, clauo Ecclesiæ Apibus præsidibus, atque mellificantibus:
+
+_Supremum regimen, culte sata jugera terræ,_  
+_Mellis opus, tria sic tres potiora notant._
+
+# [Tabula 7. --- 2.](https://cdn.solaranamnesis.com/Menestrier/24.png)
+
+Apis Solis faciem radiatam referens, Solarem virtutem in perficiendo melle indicat, cui aptatur Virgilianum illud de Apibus ipsis: EXERCET SUB SOLE LABOR. Solis facies sic in orbem radiata insigne fuit Urbani Octavi literatissimi, ac splendidissimi Principis, ad cuius virtutem, et laudem hoc emblema componitur.
+
+# [Tabula 7. --- 3.](https://cdn.solaranamnesis.com/Menestrier/24.png)
+
+LEONI, è cuius ore Apis egreditur, alludere videtur Samsonis ænigma DE FORTI EGRESSA EST DULCEDO. Alij tamen hoc sigillum inter veterum amuleta, ac Mithriaca Mysteria adnumerant.
+
+# [Tabula 7. --- 4.](https://cdn.solaranamnesis.com/Menestrier/24.png)
+
+Apes tres ad truncum semper virentis Lauri aduolantes, atque mellificantes cum lemmate: HIC DOMUS. Carminum ipsius Urbani immortalitatem innuunt.
+
+# [Tabula 7. --- 5.](https://cdn.solaranamnesis.com/Menestrier/24.png)
+
+Venator Amor Auem ramo insidentem arundine percutit, aduolante Ape, cui subijcimus DULCIS AMOR LAEDIT.
+
+# [Tabula 7. --- 6.](https://cdn.solaranamnesis.com/Menestrier/24.png)
+
+Fibula erea antiqua Apis in effigiem formata.
+
+De Apibus.
+
+_Idem amor, atque Apibus eadem experientia parcis,_  
+_Sed nec agros populare palam, aut incumbere furtis._  
+_Cum iuuet è proprio vitam tolerare labore._  
+_Justitiam norunt solæ, et servare pudorem:_  
+_Aequales cunctis operæ, studiumque parandi._  
+_Mane novos adeunt flores examine denso,_  
+_Cœlestemque legunt rorem, atque in tecta reportant._  
+_Mox vacuis stipant cellis, ut nectere largo_  
+_Ignauas ducant hyemes, et frigora temnant._  
+
+_Ex Jou. Pontano._
+
+# [Tabula 8.](https://cdn.solaranamnesis.com/Menestrier/25.png)
+
+Ad huius operis absolutionem, et elegantiam consentaneum duximus, additis Dianæ Ephesiæ Templo, et sacris, attexere quoq; votiuam Lucernam 1 eidem dicatam à quodam Eutyche Miletopolitarum Stratego, quæ Lucerna in nostro Museo vetustatis luce inextincta refulget. Ansæ apicem habet recuruum in modum falcatæ Lunæ cum titulo: [GREEK] _Diana Ephesiorum Euthychis Alexandri Miletopolitarum._ Eutychem hunc Miletopolis Urbis Strategum fuisse indicat nummus Commodi 2 ab Erizzo vulgatus, qui ab uno latere exhibet Imperatoris caput cum litris: [GREEK]. _Imperator Cæsar Lucius Aurelius Commodus_; ab alio Mercurium saxo insidentem cum Caduceo; ijdem Eutychis nominibus, in Lucerna incisis, ac Strategi dignitatem referentibus: [GREEK] _Sub Stratego Eutiche Alexandri Miletopalitarum._ Sic vertendum sanè, haud quaquàm cum Erizzo ipso: [GREEK] _Felicis Alexandri._ In quem errorem fortè non incidisset accuratissimus Nummographus, si Strategi dignitas primoribus literis patuisset. Extat et alius eiusdem Urbis nummus mediocris magnitudinis, in honorem Gordiani Pij à Clarissimo Equite Patino editus 3. [GREEK]. _Imperator Cæsar Marcus Antoninus Gordianus_ Gordiani caput. In latere adverso Diana Venatrix conspicitur cum epigraphe [GREEK] _Sub Marco Traiano Aurelio Herme, seu Hermete Miletopolitarum_; ex quibus constat, huius Urbis studium, et cultum insignem fuisse in Dianam Ephesiam. Stephanus Miletopolim scribit Urbem esse inter Cyzicum, et Bithyniam, circa Rhyndacum fluvium, deque ipsa Strabo, et Plinius.
 
 ...
