@@ -34,13 +34,13 @@ Aegyptiorum genti antiquissimæ, externæque eruditionis contemptrici moris fuit
 
 Portentosum planè atque ab omni veterum Deorum cultu, et ornatu alienum hoc simulacrum videtur. Sed qui penitùs omnia eius symbola examinauerit, varia sub ijs mysteria reconditæ illius priscorum, Aegyptiorum sapientiæ latere deprehenderet: quin etiam sub istis diuersorum animantium figuris quibus Diana decoratur, aliqua Pythagoreorum placita et dogmata contineri animaduerte: qui Lunam, circumquaque ad inilar terra, quam nos incolimus, erandioribus habitari animalibus, et pulchrioribus consitam plantis arbitrati sunt. Et hanc quidem ipsorum doctrinam, haud temerè referamus ad varia hæc symbola, quibus Diana nostra (quæ ipsissima Luna est) exornatur, cuius totum fermè corpus non modò diuersis animalium, verùm etiam fructuum generibus vestitum conspicimus.
 
-[Figura 1.](https://cdn.solaranamnesis.com/Menestrier/1.png)
+[Figura 1.](https://cdn.solaranamnesis.com/Menestrier/01.png)
 
-[Figura 2.](https://cdn.solaranamnesis.com/Menestrier/2.png)
+[Figura 2.](https://cdn.solaranamnesis.com/Menestrier/02.png)
 
-[Figura 3.](https://cdn.solaranamnesis.com/Menestrier/3.png)
+[Figura 3.](https://cdn.solaranamnesis.com/Menestrier/03.png)
 
-[Figura 4.](https://cdn.solaranamnesis.com/Menestrier/4.png)
+[Figura 4.](https://cdn.solaranamnesis.com/Menestrier/04.png)
 
 # Dianæ Ephesiæ varia Nomina.
 
@@ -52,7 +52,7 @@ Sed de Iside hoc adijciam: nusquam ceruos eius obsequio à priscis illis Aegypti
 
 In anteriori orbe primi nummi Traiani effigies, et huiusmodi est inscriptio: AYT. KAIC. TPAIAN. CEB. alter verò, quem tanquam succenturiatum testem adduxi, exhibet in antica parte, Marci Aurelij imaginem, cum his litteris: [GREEK] cuius delineandi potestatem mihi fecere Brutus et Franciscus Gotifredi fratres, unanimes in conquirendis, et asseruandis veteribus monumentis. Nonnulla etiam alia numismata eadem specie ab Ephesijs conflata, ab Huberto Goltzio, Guillelmo du Choul, Fuluio Ursino, Adolpho Occone, alijsque in lucem sunt edita. His breuiter de nominibus, dequè Dianæ forma præmissis, nunc ex qua materia simulacra ista Ephesij effinxerint despiciamus.
 
-[Figura 5.](https://cdn.solaranamnesis.com/Menestrier/5.png)
+[Figura 5.](https://cdn.solaranamnesis.com/Menestrier/05.png)
 
 # Statuæ Materies.
 
@@ -401,13 +401,13 @@ Ephesus, ut vult Stephanus, Ioniæ est urbs clarissima; Lydie, ut Herodotus: Asi
 
 ## Templum Dianæ Ephesiæ.
 
-[Figura 6.](https://cdn.solaranamnesis.com/Menestrier/6.png)
+[Figura 6.](https://cdn.solaranamnesis.com/Menestrier/06.png)
 
-[Figura 7.](https://cdn.solaranamnesis.com/Menestrier/7.png)
+[Figura 7.](https://cdn.solaranamnesis.com/Menestrier/07.png)
 
-[Figura 8.](https://cdn.solaranamnesis.com/Menestrier/8.png)
+[Figura 8.](https://cdn.solaranamnesis.com/Menestrier/08.png)
 
-[Figura 9.](https://cdn.solaranamnesis.com/Menestrier/9.png)
+[Figura 9.](https://cdn.solaranamnesis.com/Menestrier/09.png)
 
 _Dianæ Ephesiæ templum unicum est Deorum domicilium: quisquis enim spectauerit, credet permutatis inuicem locis mundum cælestem immortalium deorum in terras demigrasse. Nam Gigantes, vel Aloidæ cælum conscendere aggressi aggestis montibus non templum, sed Olympum struxere: ita ut labor inceptum, ars laborem audacia superet. Artifex enim dimoto solo, quod suberat, actisque in immensam profunditatem fossis fundamenta altioribus cuniculis iecit: ita ut montium lapicidinas operibus subterraneis exbauriret. Sed strato inconcussæ soliditatis firmamento, et præsupposito Atlante ad superincubituri operis pondera sustinenda, principio quidem crepidinem decem graduum extrinsecus posuit, quæ basis eleuatioris vice fungeretur._
 
