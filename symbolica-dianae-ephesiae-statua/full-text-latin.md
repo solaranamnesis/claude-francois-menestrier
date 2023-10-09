@@ -404,10 +404,17 @@ Hæc fere dicenda habui de his symbolis, et hieroglyphicis: nec diutiùs in ijs 
 
 Ephesus, ut vult Stephanus, Ioniæ est urbs clarissima; Lydie, ut Herodotus: Asiæ certè lumen Plinio dicta est. In ea Dianæ templum nobilissimum, quod cœteris pulchritudine, et varietate marmorum, columnarum numero, ac ipsius etiam structure concinnitate, nec non et copiosa supellectile prelatum fuit, atque inter orbis miracula annumeratum. Placet igitur cius quantulamcumque adumbrationem ex Plinio lib. 36. cap. 19. exhibere. _Magnificentiæ_ (inquit) _vera admiratio extat templum Dianæ Ephesiæ ducentis, vel ut alij volunt, quadringentis viginti annis factum à tota Asia: in solo id palustri fecere, ne terræ motus sentiret, aut hiatus timeret. Rursum ne in lubrico atque instabili fundamenta tantæ molis locarentur, calcatis ea substrauere carbonibus, dein velleribus lanæ. Universo templo est longitudo quadringentorum vigintiquinque pedum, latitudo, ducentorum viginti. Columnæ centum viginti septem à singulis Regibus factæ; sexaginta pedum altitudine, ex ijs triginta sex cælatæ._ Quales fuerint trabes, ex Vitruuio suprà indicauimus. Valuæ autem ex cupresso compacte, quæ et ad quatuor usque ætates intacte permanserunt, ut Theophrastus hist. plant. lib. 5. annotauit. Cœterum tanta fuit templi maiestas, ut ansam Plinio dederit asserendi, _Cœtera eius opiris ornamenta, plurium librorum instar obtinere_. De primis eius auctoribus inter se non conveniunt scriptores. Livius à civitatibus totius Asiæ factum ex vulgari fama refert. Alij maluere ab Amazonibus extructum: quò faciunt versus illi Nonni in Dionys. quos in limine sermonis adduximus. Pindarus apud Pausaniam in Achaicis idem fatetur, atque adeò eleganti carmine Amazonibus bellum Theseo inferentibus hoc opus assignat. Id etiam Hyginus insinuat, et addit insuper, ab Otrita Amazone Martis coniuge dedicatum. In ea quoque mente Pimandri interpres, Pomponius Mela, et Solinus lib. 1. cap. 41. quibus tamen neutiquam consentit Pausanias in Achaicis: sed Eræsum hominem indigenam, Ephesumque Caystri fluminis filium tantæ molis auctores facit: quin et ab Epheso urbem denominatam asserit. Quocumque auctore excitatum fuerit, tantæ fuit magnificentiæ apud priscos, ut inter septem orbis miracula adnumeratum, non ultimum locum habuerit. Antipater illud spectaculis omnibus anteponere non dubitauit. Eadem fiducia Hyginus primum illi locum inter orbis miracula tribuit. Non me tamen fugit, alios esse qui secundum illi locum assignent. Callimachus poëta illustris in hymno Dianæ, nihil præcellentius et admirabilius à Sole oriente conspici dixit. Sed omnium elegantissimè huius Templi augustam magnitudinem depingit Philo Byzantius antiquissimus scriptor libello de 7. orbis miraculis, cuius locum harum elegantiarum studiosi unà mecum debebunt V. Cl. Lucæ Holstenio, qui eum libellum iam dudum cum alijs editioni paratum servat: unde hæc interim amicissimi viri beneficio cum eiusdem versione Latina profero.
 
-[GREEK]
+ΘΕΑΜΑ ΠI.
 
-[GREEK]
+Ο῾ἐν E᾽Φέσῳ ναὸς τῆς Α᾽ρτέμιδος.
 
+Ο῾τῆς Α᾽ρτέμιδος ναὸς ἐν E᾽Φέσω μόνος ἐστὶ Θεῶν οἶκος •
+πεισθήσεται γὲρ ὁ θεασάίμευος τὸν τόπον ἐνηλλάχθαι, νὶλ τὸν
+οὐράνιου τῆς ἀθανασίας κόσμον ἐπὶ γῆς ἀπηχθεῖσθς. Γίγαντες γὰρ οἱ
+των Α᾽λωέως παίδων οἱ τὴν εἰς οὐρανὸν ἀνάβασιν ἐργάσαντο, ὄερσι
+χωννύοντες τὸν οὐ ναὸν, ἀλλ᾽ Ο῎λυμπον • ὥστε τῆς μεὺ ἐπιβολῆς
+τολμηρότερον εἶναι τὸν πόνον, τοῦ πὸνον δὲ τὴν τέχνκν • γὸ γὰρ ἔδαΦος
+τῆς ὑποκειμεύης γῆς λύσας ὁ τεχνίτης, καὶ τὰ βάθη των ὀρυγμάτων
 [GREEK]
 
 # Vi Miraculum.
