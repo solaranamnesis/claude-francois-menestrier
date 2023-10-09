@@ -81,7 +81,9 @@ _Percupis hic thalamum esse Diana tuum?_
 
 Sed missis fabulis, simulacrum illud potius ab Amazonibus positum dixerim: cùm Ephesini templi constructio ijsdem à Dionysio Periegete tribuatur.
 
-[GREEK]
+Παῤῥαλίην Ε῎φεσον, μεγάλην πόλιν ἰοχεαίρης,  
+Ε῎νζα θεῆ ποτὲ νηὸν Α᾽μαζονίδες τετύχοντο,  
+Πρέμνῳ ἔνι πτελέης.
 
 _Maritimam Ephesam magnam urbem Dianæ,_  
 _Ubi Deæ ædem quondam Amazonides struxerunt_  
@@ -89,7 +91,9 @@ _In trunco stipite ulmi._
 
 Vero autem propius sit, Amazones simulacrum Dianæ vouisse, ut sacram ædem ei dedicarent. Fauet Callimachus hymn. in Dianam.
 
-[GREEK]
+Σοὶ καὶ Αμαζονίδες πολέμου ἐπθυμήτειραι  
+Ε᾽ν πότε παῤῥαλίη Ε᾽Φέσου βρέτας ἱδρύσαντο,  
+Φηγῷ ὑπὸ πρέμνῳ.
 
 _Tibi etiam Amazones belli affectatrices_  
 _Olim in littore Ephesi statuam posuerunt,_  
