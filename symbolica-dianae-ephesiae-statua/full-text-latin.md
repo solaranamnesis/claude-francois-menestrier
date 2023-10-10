@@ -559,7 +559,7 @@ Sed iam in Hymetto, sacra litaui, Eminentissime Princeps, nunc Apes tuas, in Hel
 
 Emin. Tuæ
 
-_Observantiss. humillimusq; seruus Jo. Petrus Bellorius.
+_Observantiss. humillimusq; seruus Jo. Petrus Bellorius._
 
 # [Tabula 1. --- 1.](https://cdn.solaranamnesis.com/Menestrier/18.png)
 
