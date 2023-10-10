@@ -843,9 +843,9 @@ Placuit tamen alijs, Leones mansuetos Matri Magnæ adiunctos, ut indicarent, nul
 Rosæ in pectoris zona, atque in clamyde intextæ, Matris Deûm, seù Telluris florenti Vere primitias ostentant. Quare in eius festo, cum Dea per Urbes vectaretur, ante ipsius simulacrum Rosæ spargebantur, juxtà eiusdem Lucretij descriptionem.
 
 _Ergo cùm primùm magnas inuecta per Urbeis_  
-_Munificat tacitå mortaleis muta salute:_  
+_Munificat tacitâ mortaleis muta salute:_  
 _Aere, atque argento sternunt iter omne viarum,_  
-_Largificå stipe ditantes, ninguntque rosarum_  
+_Largificâ stipe ditantes, ninguntque rosarum_  
 _Floribus, umbrantes Matrem, comitumque cateruas._
 
 Quod idem solemne fuisse in Isidis, siue ipsius Deûm Matris pompâ refert Apuleius, in quâ Sacerdos ante Deæ simulacrum, coronam amænis contextam rosis gerebat, quæ Lucium ferinâ specie exuerunt. Sed præclarius argumentum præbent Apes, quæ in extrema clamydis ora, rosis intermixtæ limbum vicissim pingunt, et venustè quidem, nam et ipsæ florilegæ rosas amant, ac in hortis cum thymo, et violis, ad mellis munera depascunt. Quin et Apes Matri Deûm ità sunt addictæ, ut Cybeleio æris tinnitu mulceantur, ac abeuntes revocentur, ut describit Virgilius:
