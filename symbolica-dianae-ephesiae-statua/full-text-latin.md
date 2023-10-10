@@ -8,7 +8,7 @@
 
 #### Lucæ Holstenij Epistola ad Franciscum Carinalem Barerinum De Fulcris, seu Verubus Dianæ Ephesiæ simulacro appositis,
 
-#### Io. Petri Bellorij Notæ in Numismata tùm Ephesia, tùm uliarum Urbium Apibus insignita.
+#### Jo. Petri Bellorij Notæ in Numismata tùm Ephesia, tùm uliarum Urbium Apibus insignita.
 
 ##### _Editio altera auctior_
 
