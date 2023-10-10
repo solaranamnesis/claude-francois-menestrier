@@ -24,7 +24,7 @@
 
 ## Eminentiss. Ac Reverndiss. Principi Francicso Barberino Cardinali.
 
-### Federicus Vbaldinus.
+### Federicus Ubaldinus.
 
 Non uereor, Domine, ut hilari vultu excipiatur à te quem tibi offero libellum: tuus enim est iure patrocinij; nam Clariss. Menetreius eum reliquit posthumum ingenij sui partum. Qua ergo pietate auctorem olim fouebas, et hunc fouebis certo scio; cum Claudium ipsum, quem tu plurimùm amabas, ab obliuione in hominum memoriam sis euocaturus. Etenim si præclarè consultum, est, ut eius, qui sacrilega gloriæ cupidine actus Dianæ Ephesiæ templum incendit, nomen aboleretur: merito illius per universum terrarum orbem celebrabitur industria, qui pio aduersus omnem Antiquitatem studio eandem Dianam instaurare contendit.
 
