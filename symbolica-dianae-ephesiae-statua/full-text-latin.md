@@ -92,7 +92,7 @@ _In trunco stipite ulmi._
 Vero autem propius sit, Amazones simulacrum Dianæ vouisse, ut sacram ædem ei dedicarent. Fauet Callimachus hymn. in Dianam.
 
 Σοὶ καὶ Αμαζονίδες πολέμου ἐπθυμήτειραι  
-Ε᾽ν πότε παῤῥαλίη Ε᾽Φέσου βρέτας ἱδρύσαντο,  
+Ε᾽ν πότε παῤῥαλίη Ε᾽φέσου βρέτας ἱδρύσαντο,  
 Φηγῷ ὑπὸ πρέμνῳ.
 
 _Tibi etiam Amazones belli affectatrices_  
